@@ -33,3 +33,5 @@ html_theme = 'sphinx_rtd_theme'
 
 html_show_sphinx = False
 
+html_favicon = 'favicon.ico'
+
