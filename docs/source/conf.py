@@ -35,3 +35,5 @@ html_show_sphinx = False
 
 html_favicon = 'favicon.ico'
 
+includehidden = False
+
