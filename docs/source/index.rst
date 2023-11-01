@@ -1,6 +1,9 @@
 Bahis Siteleri Giriş Adresleri
 ===================================
 
+.. image:: images/betgar-giris.jpg
+   :width: 600
+
 "Bahis siteleri giriş adresleri: Neden Değişirler ve Nasıl Öğrenilirler?"
 
 Çevrimiçi bahis siteleri, spor bahisleri, casino oyunları ve diğer şans oyunlarını sunan platformlardır. Ancak, bu sitelerin sık sık giriş adreslerini değiştirdiğini görebilirsiniz. Peki, bahis siteleri neden adres değiştirirler ve güncel giriş adreslerini nasıl öğrenebilirsiniz?
@@ -29,3 +32,4 @@ Güncel bir bahis sitesinin giriş adresini öğrenmek için aşağıdaki adıml
 5. **Mobil Uygulamalar:** Bazı bahis siteleri, mobil uygulamaları aracılığıyla güncel adreslerini paylaşırlar.
 
 Unutmayın ki güncel adresi doğrulamak için resmi web sitesini veya güvenilir kaynakları kullanmalısınız. Güvendiğiniz ve lisanslı bir bahis sitesini tercih etmek her zaman daha güvenlidir. Bahis yapmadan önce yerel yasalara ve site kurallarına uygun şekilde hareket etmeyi unutmamanız önemlidir.
+
