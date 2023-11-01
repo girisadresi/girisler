@@ -40,3 +40,4 @@ html_theme_options = {
     'nosidebar': True,
 }
 
+vcs_pageview_mode=view
