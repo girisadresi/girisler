@@ -7,7 +7,7 @@ Holiganbet908 | Holiganbet 908 | Holiganbet Giriş
 Holiganbet giriş adresini holiganbet908.com olarak değiştirmiştir.  
 
 
-`GİRİŞ YAPMAK İÇİN TIKLAYIN <http://cnn.com>`_
+`GİRİŞ YAPMAK İÇİN TIKLAYIN <https://girisadresi.serv00.net/git>`_
 ==============
 
 .. list-table:: **SON ADRES DEĞİŞİKLİKLERİ**
