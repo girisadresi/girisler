@@ -32,3 +32,16 @@ Holiganbet giriş adresini holiganbet908.com olarak değiştirmiştir.
      - %firmasayi2
    * - `%firma1 <%firmadres1>`_
      - %firmasayi1
+	 
+Holiganbet908 İstatistikleri
+===================================	 
+* Adres değişikliği inceleme sayısı: %randomsayi10
+* Google'dan gelen ziyaretçi sayısı: %randomsayi9
+* Yandex\'den gelen ziyaretçi sayısı: %randomsayi8
+* Younow\'dan gelen ziyaretçi sayısı: %randomsayi7
+* Duckduckgo\'dan gelen ziyaretçi sayısı: %randomsayi6
+* Slot Oyunu Oynayanlar: %randomsayi5
+* Canlı Bahis Yapanlar: %randomsayi4
+* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %%randomyuzde1
+* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %%randomyuzde2
+* Günlük Ortalama Ziyaretçi Sayısı: %randomsayi3
