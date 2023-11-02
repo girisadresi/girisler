@@ -33,7 +33,7 @@ Holiganbet giriş adresini holiganbet908.com olarak değiştirmiştir.
    * - `%firma1 <%firmadres1>`_
      - %firmasayi1
 	 
-Holiganbet908 İstatistikleri
+Holiganbet908 İstatistikleri:
 ===================================	 
 * Adres değişikliği inceleme sayısı: %randomsayi10
 * Google'dan gelen ziyaretçi sayısı: %randomsayi9
