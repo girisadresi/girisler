@@ -37,9 +37,9 @@ Holiganbet908 İstatistikleri:
 ===================================	 
 * Adres değişikliği inceleme sayısı: %randomsayi10
 * Google'dan gelen ziyaretçi sayısı: %randomsayi9
-* Yandex\'den gelen ziyaretçi sayısı: %randomsayi8
-* Younow\'dan gelen ziyaretçi sayısı: %randomsayi7
-* Duckduckgo\'dan gelen ziyaretçi sayısı: %randomsayi6
+* Yandex'den gelen ziyaretçi sayısı: %randomsayi8
+* Younow'dan gelen ziyaretçi sayısı: %randomsayi7
+* Duckduckgo'dan gelen ziyaretçi sayısı: %randomsayi6
 * Slot Oyunu Oynayanlar: %randomsayi5
 * Canlı Bahis Yapanlar: %randomsayi4
 * Firmayı Beğenenlerin Yüzdelik Sayısı(%): %%randomyuzde1
