@@ -11,7 +11,7 @@ Holiganbet giriş adresini holiganbet908.com olarak değiştirmiştir.
 ==============
 
 .. list-table:: Title
-   :widths: 25 25 50
+   :widths: 25 25
    :header-rows: 1
 
    * - FİRMA
