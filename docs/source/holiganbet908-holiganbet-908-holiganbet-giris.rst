@@ -16,19 +16,19 @@ Holiganbet giriş adresini holiganbet908.com olarak değiştirmiştir.
 
    * - FİRMA
      - SAYI
-   * - `%firma10 <%firmadres10>
+   * - `%firma10 <%firmadres10>`_
      - %firmasayi10
-   * - `%firma9 <%firmadres9>
+   * - `%firma9 <%firmadres9>`_
      - %firmasayi8
-   * - `%firma8 <%firmadres8>
+   * - `%firma8 <%firmadres8>`_
      - %firmasayi7	 
-   * - `%firma6 <%firmadres6>
+   * - `%firma6 <%firmadres6>`_
      - %firmasayi5	 
-   * - `%firma5 <%firmadres5>
+   * - `%firma5 <%firmadres5>`_
      - %firmasayi4
-   * - `%firma4 <%firmadres4>
+   * - `%firma4 <%firmadres4>`_
      - %firmasayi3	 
-   * - `%firma3 <%firmadres3>
+   * - `%firma3 <%firmadres3>`_
      - %firmasayi2
-   * - `%firma1 <%firmadres1>
+   * - `%firma1 <%firmadres1>`_
      - %firmasayi1
