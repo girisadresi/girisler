@@ -13,7 +13,7 @@ Holiganbet giriş adresini holiganbet908.com olarak değiştirmiştir.
 .. list-table:: Güvenilir Bahis Siteleri Son Adresleri
    :widths: 75 25
    :header-rows: 1
-	* FİRMA ADI
-	* SAYI
-	- Holiganbet
-	- 908
+	* - FİRMA ADI
+		- Holiganbet
+	* - SAYI
+		- 908
