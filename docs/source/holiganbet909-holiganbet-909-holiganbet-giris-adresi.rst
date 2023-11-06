@@ -4,9 +4,9 @@
 .. image:: images/holiganbet-giris.jpg
    :width: 600
    
-Holiganbet ofisinin kaliteli giriş adresi **holiganbet909.com** adında bildirilmiştir. İnternet üzerinden canlı kumar platformlarına anında bağlantı sağlama hatası yüzleşen oyun hastaları tam da bu anki ulaşım adresi hevesine kapılmışlardır. Hepimiz bize düşen sorumluluğu yerine getirmek arzusuyla kurallarımızdan taviz vermeden En çok oyun sağlayıcısı olan sanal bahis sitelerini göz atarak hoşgeldin bonusu arayanlara yardımcı olacağız. Sorgulanan Holiganbet911, Holiganbet909, Holiganbet910 ve Holiganbet911 adres değişiklikleridir.
+Holiganbet bahis platformunun en güvenilir giriş uzantısı **holiganbet909.com** olarak yazılmıştır. Arama motoru yoluyla blackjack websitelerine direk ulaşım sağlama sıkıntısı yaşayan slot tutkunları bu anki değişen son giriş adresi arzusuna girişmişlerdir. Grupça bize düşen görevi yerine getirmek arzusuyla ara vermeden ödeme yapan canlı rulet şirketlerini filtreleyerek papara kullananlara yardım edeceğiz. Bakılan Kavbet427, Holiganbet909, Limanbet530 ve Jojobet823 başlıklarıdır.
 
-`GİRİŞ YAPMAK İÇİN TIKLAYIN! <https://urlday.cc/git>`_
+`GİTMEK İÇİN TIKLAYIN! <https://urlday.cc/git>`_
 ==============
 
 .. list-table:: **SON ADRES DEĞİŞİKLİKLERİ**
@@ -14,26 +14,26 @@ Holiganbet ofisinin kaliteli giriş adresi **holiganbet909.com** adında bildiri
    :header-rows: 1
 
    * - FİRMA
-   * - `Holiganbet910 | Holiganbet 910 <%lfirmlink10>`_
-   * - `Holiganbet911 | Holiganbet 911 <%lfirmlink9>`_
-   * - `Holiganbet910 | Holiganbet 910 <%lfirmlink8>`_	 
-   * - `Holiganbet910 | Holiganbet 910 <%lfirmlink7>`_	 
-   * - `Holiganbet912 | Holiganbet 912 <%lfirmlink6>`_ 
-   * - `Holiganbet909 | Holiganbet 909 <%lfirmlink5>`_
-   * - `Holiganbet912 | Holiganbet 912 <%lfirmlink4>`_	 
-   * - `Holiganbet911 | Holiganbet 911 <%lfirmlink3>`_
-   * - `Holiganbet909 | Holiganbet 909 <%lfirmlink2>`_
-   * - `Holiganbet912 | Holiganbet 912 <%lfirmlink1>`_
+   * - `Jojobet824 | Jojobet 824 <jojobet824-jojobet-824-jojobet-giris-adresi.html>`_
+   * - `Pulibet636 | Pulibet 636 <pulibet636-pulibet-636-pulibet-giris-adresi.html>`_
+   * - `Hayalbahis452 | Hayalbahis 452 <hayalbahis452-hayalbahis-452-hayalbahis-giris-adresi.html>`_	 
+   * - `Tarabet395 | Tarabet 395 <tarabet395-tarabet-395-tarabet-giris-adresi.html>`_	 
+   * - `Atlantisbahis464 | Atlantisbahis 464 <atlantisbahis464-atlantisbahis-464-atlantisbahis-giris-adresi.html>`_ 
+   * - `Enobahis394 | Enobahis 394 <enobahis394-enobahis-394-enobahis-giris-adresi.html>`_
+   * - `Trendbet536 | Trendbet 536 <trendbet536-trendbet-536-trendbet-giris-adresi.html>`_	 
+   * - `Pusulabet697 | Pusulabet 697 <pusulabet697-pusulabet-697-pusulabet-giris-adresi.html>`_
+   * - `Jojobet823 | Jojobet 823 <jojobet823-jojobet-823-jojobet-giris-adresi.html>`_
+   * - `Trendbet536 | Trendbet 536 <trendbet536-trendbet-536-trendbet-giris-adresi.html>`_
 	 
 Holiganbet909 İstatistikleri:
 ===================================	 
-* Adres değişikliği inceleme sayısı: 132
-* Google'dan gelen ziyaretçi sayısı: 4451
-* Yandex'den gelen ziyaretçi sayısı: 1448
-* Younow'dan gelen ziyaretçi sayısı: 553
-* Duckduckgo'dan gelen ziyaretçi sayısı: 1704
-* Slot Oyunu Oynayanlar: 559
-* Canlı Bahis Yapanlar: 4454
-* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %28
-* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %43
-* Günlük Ortalama Ziyaretçi Sayısı: 279
+* Adres değişikliği inceleme sayısı: 201
+* Google'dan gelen ziyaretçi sayısı: 351
+* Yandex'den gelen ziyaretçi sayısı: 1267
+* Younow'dan gelen ziyaretçi sayısı: 1600
+* Duckduckgo'dan gelen ziyaretçi sayısı: 1007
+* Slot Oyunu Oynayanlar: 1543
+* Canlı Bahis Yapanlar: 354
+* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %27
+* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %7
+* Günlük Ortalama Ziyaretçi Sayısı: 239
