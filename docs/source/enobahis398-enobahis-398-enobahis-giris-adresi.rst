@@ -4,9 +4,9 @@
 .. image:: images/enobahis-giris.jpg
    :width: 600
    
-Enobahis bahis sitesinin en temiz giriş domaini **enobahis398.com** olarak kayıt yaptırılmıştır. Bu ülkede canlı bahis websitelerine direk ulaşım sağlama sıkıntısı ile karşılaşan canlı bahis sevenler o anki kesintisiz erişim adresi isteğine bakmışlardır. Biz de üstümüze düşen sorumluluğu uygulamak duygusuyla uzman gözümüzle En çok aratılan bakara şirketlerini araştırarak payfix ile oynayacaklara yardım edeceğiz. Kovuşturulan Tarabet395, Jojobet822, Pulibet634 ve Perabet941 sorgulamalarıdır.
+Enobahis websitesinin engelsiz giriş yolu **enobahis398.com** adında kayıt yaptırılmıştır. Mobil cihazlardan bahis platformlarına giriş yapma problemi yaşayan sanal bahis sevenler günümüzdeki güncel yeni giriş adresi hevesine gitmişlerdir. Gruptakilerle bize düşen sorumluluğu yerine getirmek ümidiyle ara vermeden güvenilir rulet platformlarını göz atarak siz sevgili takipçilere yardımcı olacağız. Soruşturulan Betpas952, Lunabet718, Hititbet349 ve Lirabet395 adres değişiklikleridir.
 
-`DEVAM ETMEK İÇİN TIKLAYIN! <https://urlday.cc/git>`_
+`GİRİŞ İÇİN TIKLAYIN! <https://urlday.cc/git>`_
 ==============
 
 .. list-table:: **SON ADRES DEĞİŞİKLİKLERİ**
@@ -14,26 +14,26 @@ Enobahis bahis sitesinin en temiz giriş domaini **enobahis398.com** olarak kay�
    :header-rows: 1
 
    * - FİRMA
-   * - `Casinomaxi728 | Casinomaxi 728 <casinomaxi728-casinomaxi-728-casinomaxi-giris-adresi.html>`_
-   * - `Pulibet633 | Pulibet 633 <pulibet633-pulibet-633-pulibet-giris-adresi.html>`_
-   * - `Hayalbahis453 | Hayalbahis 453 <hayalbahis453-hayalbahis-453-hayalbahis-giris-adresi.html>`_	 
-   * - `Nakitbahis802 | Nakitbahis 802 <nakitbahis802-nakitbahis-802-nakitbahis-giris-adresi.html>`_	 
-   * - `Perabet940 | Perabet 940 <perabet940-perabet-940-perabet-giris-adresi.html>`_ 
-   * - `124Kolaybet | 124 Kolaybet <124kolaybet-124-kolaybet-kolaybet-giris-adresi.html>`_
-   * - `Pulibet633 | Pulibet 633 <pulibet633-pulibet-633-pulibet-giris-adresi.html>`_	 
-   * - `123Kolaybet | 123 Kolaybet <123kolaybet-123-kolaybet-kolaybet-giris-adresi.html>`_
-   * - `Betyap499 | Betyap 499 <betyap499-betyap-499-betyap-giris-adresi.html>`_
-   * - `Limanbet528 | Limanbet 528 <limanbet528-limanbet-528-limanbet-giris-adresi.html>`_
+   * - `Milosbet465 | Milosbet 465 <milosbet465-milosbet-465-milosbet-giris-adresi.html>`_
+   * - `291Redwin | 291 Redwin <291redwin-291-redwin-redwin-giris-adresi.html>`_
+   * - `Baykolik190 | Baykolik 190 <baykolik190-baykolik-190-baykolik-giris-adresi.html>`_	 
+   * - `Tarabet396 | Tarabet 396 <tarabet396-tarabet-396-tarabet-giris-adresi.html>`_	 
+   * - `Ligobet635 | Ligobet 635 <ligobet635-ligobet-635-ligobet-giris-adresi.html>`_ 
+   * - `Casibom560 | Casibom 560 <casibom560-casibom-560-casibom-giris-adresi.html>`_
+   * - `ShowBahis312 | ShowBahis 312 <showbahis312-showbahis-312-showbahis-giris-adresi.html>`_	 
+   * - `İlkyarı421 | İlkyarı 421 <ilkyari421-ilkyari-421-ilkyari-giris-adresi.html>`_
+   * - `Bet10bet428 | Bet10bet 428 <bet10bet428-bet10bet-428-bet10bet-giris-adresi.html>`_
+   * - `Monobahis384 | Monobahis 384 <monobahis384-monobahis-384-monobahis-giris-adresi.html>`_
 	 
 Enobahis398 İstatistikleri:
 ===================================	 
-* Adres değişikliği inceleme sayısı: 473
-* Google'dan gelen ziyaretçi sayısı: 261
-* Yandex'den gelen ziyaretçi sayısı: 547
-* Younow'dan gelen ziyaretçi sayısı: 1404
-* Duckduckgo'dan gelen ziyaretçi sayısı: 1253
-* Slot Oyunu Oynayanlar: 1493
-* Canlı Bahis Yapanlar: 264
-* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %64
-* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %36
-* Günlük Ortalama Ziyaretçi Sayısı: 265
+* Adres değişikliği inceleme sayısı: 200
+* Google'dan gelen ziyaretçi sayısı: 1011
+* Yandex'den gelen ziyaretçi sayısı: 1946
+* Younow'dan gelen ziyaretçi sayısı: 1519
+* Duckduckgo'dan gelen ziyaretçi sayısı: 1693
+* Slot Oyunu Oynayanlar: 1460
+* Canlı Bahis Yapanlar: 1014
+* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %0
+* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %53
+* Günlük Ortalama Ziyaretçi Sayısı: 37

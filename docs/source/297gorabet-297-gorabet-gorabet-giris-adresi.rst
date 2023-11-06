@@ -4,9 +4,9 @@
 .. image:: images/gorabet-giris.jpg
    :width: 600
    
-Gorabet bahis platformunun doğrudan giriş uzantısı **297gorabet.com** şeklinde sunulmuştur. Bilgisayardan rulet şirketlerine bağlantı kurma sıkıntısı karşı karşıya kalan oyun hastaları bugününkü bağlantı adresi arayışına bakmışlardır. Gruptaki arkadaşlarla üstümüze düşen sorumluluğu icra etmek isteğiyle her an Ülkemizde popüler olan  kumar bürolarını filtreleyerek siz sevgili ziyaretçilere yardımcı olacağız. Bakılan Pulibet633, Tarabet395, Tarabet395 ve 123Kolaybet konularıdır.
+Gorabet ofisinin en sağlam giriş yolu **297gorabet.com** şeklinde yazılmıştır. Türkiye'de canlı kumar şirketlerine bağlanma sorunu yüzleşen bahis tutkunları şimdiki ulaşım adresi arzusuna koyulmuşlardır. Grup arkadaşlarımızla üstümüze düşen sorumluluğu uygulamak hayaliyle objektif olarak Çekim hızı jet hızında olan slot sitelerini filtreleyerek siz sevgili ziyaretçilere iyilik yapacağız. Kovuşturulan 522Bahiscom, Vaycasino120, Betwild57 ve Betmanbet332 adres değişiklikleridir.
 
-`GİRİŞ İÇİN TIKLAYIN! <https://urlday.cc/git>`_
+`GİRİŞ YAPMAK İÇİN TIKLAYIN! <https://urlday.cc/git>`_
 ==============
 
 .. list-table:: **SON ADRES DEĞİŞİKLİKLERİ**
@@ -14,26 +14,26 @@ Gorabet bahis platformunun doğrudan giriş uzantısı **297gorabet.com** şekli
    :header-rows: 1
 
    * - FİRMA
-   * - `Hayalbahis454 | Hayalbahis 454 <hayalbahis454-hayalbahis-454-hayalbahis-giris-adresi.html>`_
-   * - `Limanbet530 | Limanbet 530 <limanbet530-limanbet-530-limanbet-giris-adresi.html>`_
-   * - `Pusulabet697 | Pusulabet 697 <pusulabet697-pusulabet-697-pusulabet-giris-adresi.html>`_	 
-   * - `Enobahis396 | Enobahis 396 <enobahis396-enobahis-396-enobahis-giris-adresi.html>`_	 
-   * - `122Kolaybet | 122 Kolaybet <122kolaybet-122-kolaybet-kolaybet-giris-adresi.html>`_ 
-   * - `296Gorabet | 296 Gorabet <296gorabet-296-gorabet-gorabet-giris-adresi.html>`_
-   * - `Pulibet635 | Pulibet 635 <pulibet635-pulibet-635-pulibet-giris-adresi.html>`_	 
-   * - `Limanbet530 | Limanbet 530 <limanbet530-limanbet-530-limanbet-giris-adresi.html>`_
-   * - `Betyap499 | Betyap 499 <betyap499-betyap-499-betyap-giris-adresi.html>`_
-   * - `Enobahis396 | Enobahis 396 <enobahis396-enobahis-396-enobahis-giris-adresi.html>`_
+   * - `Piabellacasino314 | Piabellacasino 314 <piabellacasino314-piabellacasino-314-piabellacasino-giris-adresi.html>`_
+   * - `Royalbet434 | Royalbet 434 <royalbet434-royalbet-434-royalbet-giris-adresi.html>`_
+   * - `Turbobet350 | Turbobet 350 <turbobet350-turbobet-350-turbobet-giris-adresi.html>`_	 
+   * - `Atlasbet546 | Atlasbet 546 <atlasbet546-atlasbet-546-atlasbet-giris-adresi.html>`_	 
+   * - `135Casinoturka | 135 Casinoturka <135casinoturka-135-casinoturka-casinoturka-giris-adresi.html>`_ 
+   * - `745Grandbetting | 745 Grandbetting <745grandbetting-745-grandbetting-grandbetting-giris-adresi.html>`_
+   * - `Betbigo500 | Betbigo 500 <betbigo500-betbigo-500-betbigo-giris-adresi.html>`_	 
+   * - `Tulipbet598 | Tulipbet 598 <tulipbet598-tulipbet-598-tulipbet-giris-adresi.html>`_
+   * - `Betpark722 | Betpark 722 <betpark722-betpark-722-betpark-giris-adresi.html>`_
+   * - `Klasbahis744 | Klasbahis 744 <klasbahis744-klasbahis-744-klasbahis-giris-adresi.html>`_
 	 
 Gorabet297 İstatistikleri:
 ===================================	 
-* Adres değişikliği inceleme sayısı: 231
-* Google'dan gelen ziyaretçi sayısı: 3021
-* Yandex'den gelen ziyaretçi sayısı: 1477
-* Younow'dan gelen ziyaretçi sayısı: 785
-* Duckduckgo'dan gelen ziyaretçi sayısı: 1734
-* Slot Oyunu Oynayanlar: 1919
-* Canlı Bahis Yapanlar: 3024
-* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %55
-* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %33
-* Günlük Ortalama Ziyaretçi Sayısı: 322
+* Adres değişikliği inceleme sayısı: 312
+* Google'dan gelen ziyaretçi sayısı: 2431
+* Yandex'den gelen ziyaretçi sayısı: 1415
+* Younow'dan gelen ziyaretçi sayısı: 754
+* Duckduckgo'dan gelen ziyaretçi sayısı: 533
+* Slot Oyunu Oynayanlar: 1008
+* Canlı Bahis Yapanlar: 2434
+* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %67
+* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %66
+* Günlük Ortalama Ziyaretçi Sayısı: 1

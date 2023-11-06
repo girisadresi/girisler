@@ -4,9 +4,9 @@
 .. image:: images/kavbet-giris.jpg
    :width: 600
    
-Kavbet sitesinin kusursuz giriş yeri **kavbet428.com** halinde değişikliğe uğramıştır. Mobil cihazlardan canlı rulet bürolarına direk bağlantı kurma sorunu yüzleşen oyun tutkunları o anki erişim adresi isteğine yolalmışlardır. Hepimiz üstümüze düşen görevi icra etmek duygusuyla ara vermeden yabancı canlı rulet websitelerini belirterek üye olmak isteyenlere yardımcı olacağız. Gözatılan Jojobet824, Perabet939, Casinomaxi729 ve Holiganbet912 sorgulamalarıdır.
+Kavbet bahis firmasının en hatasız giriş yeri **kavbet428.com** adında yönlendirilmiştir. İnternet üzerinden slot websitelerine direk bağlantı kurma sorunu karşı karşıya kalan casino severler tam da şimdiki ulaşım adresi hevesine kapılmışlardır. Hepimiz üstümüze düşen sorumluluğu yerine getirmek bilinciyle kurallarımızdan taviz vermeden belge talep etmeyen casino sitelerini belirterek havale kullananlara ön ayak olacağız. Kovuşturulan Wsbets231, Betzula227, Royalbet433 ve Toobet153 adres değişimleridir.
 
-`DEVAM ETMEK İÇİN TIKLAYIN! <https://urlday.cc/git>`_
+`GİTMEK İÇİN TIKLAYIN! <https://urlday.cc/git>`_
 ==============
 
 .. list-table:: **SON ADRES DEĞİŞİKLİKLERİ**
@@ -14,26 +14,26 @@ Kavbet sitesinin kusursuz giriş yeri **kavbet428.com** halinde değişikliğe u
    :header-rows: 1
 
    * - FİRMA
-   * - `Nakitbahis801 | Nakitbahis 801 <nakitbahis801-nakitbahis-801-nakitbahis-giris-adresi.html>`_
-   * - `Holiganbet910 | Holiganbet 910 <holiganbet910-holiganbet-910-holiganbet-giris-adresi.html>`_
-   * - `Limanbet529 | Limanbet 529 <limanbet529-limanbet-529-limanbet-giris-adresi.html>`_	 
-   * - `Holiganbet909 | Holiganbet 909 <holiganbet909-holiganbet-909-holiganbet-giris-adresi.html>`_	 
-   * - `Pusulabet696 | Pusulabet 696 <pusulabet696-pusulabet-696-pusulabet-giris-adresi.html>`_ 
-   * - `Hayalbahis454 | Hayalbahis 454 <hayalbahis454-hayalbahis-454-hayalbahis-giris-adresi.html>`_
-   * - `Enobahis394 | Enobahis 394 <enobahis394-enobahis-394-enobahis-giris-adresi.html>`_	 
-   * - `Limanbet531 | Limanbet 531 <limanbet531-limanbet-531-limanbet-giris-adresi.html>`_
-   * - `Perabet939 | Perabet 939 <perabet939-perabet-939-perabet-giris-adresi.html>`_
-   * - `Hayalbahis453 | Hayalbahis 453 <hayalbahis453-hayalbahis-453-hayalbahis-giris-adresi.html>`_
+   * - `Betelli51 | Betelli 51 <betelli51-betelli-51-betelli-giris-adresi.html>`_
+   * - `Betbaba876 | Betbaba 876 <betbaba876-betbaba-876-betbaba-giris-adresi.html>`_
+   * - `Belugabahis629 | Belugabahis 629 <belugabahis629-belugabahis-629-belugabahis-giris-adresi.html>`_	 
+   * - `Bullbahis232 | Bullbahis 232 <bullbahis232-bullbahis-232-bullbahis-giris-adresi.html>`_	 
+   * - `İkimisli440 | İkimisli 440 <ikimisli440-ikimisli-440-ikimisli-giris-adresi.html>`_ 
+   * - `Betsat1145 | Betsat 1145 <betsat1145-betsat-1145-betsat-giris-adresi.html>`_
+   * - `Winbir392 | Winbir 392 <winbir392-winbir-392-winbir-giris-adresi.html>`_	 
+   * - `Youwin247 | Youwin 247 <youwin247-youwin-247-youwin-giris-adresi.html>`_
+   * - `134Casinoturka | 134 Casinoturka <134casinoturka-134-casinoturka-casinoturka-giris-adresi.html>`_
+   * - `Polobet823 | Polobet 823 <polobet823-polobet-823-polobet-giris-adresi.html>`_
 	 
 Kavbet428 İstatistikleri:
 ===================================	 
-* Adres değişikliği inceleme sayısı: 254
-* Google'dan gelen ziyaretçi sayısı: 881
-* Yandex'den gelen ziyaretçi sayısı: 1246
-* Younow'dan gelen ziyaretçi sayısı: 1127
-* Duckduckgo'dan gelen ziyaretçi sayısı: 1767
-* Slot Oyunu Oynayanlar: 1122
-* Canlı Bahis Yapanlar: 884
-* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %80
-* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %70
-* Günlük Ortalama Ziyaretçi Sayısı: 3
+* Adres değişikliği inceleme sayısı: 65
+* Google'dan gelen ziyaretçi sayısı: 4011
+* Yandex'den gelen ziyaretçi sayısı: 1210
+* Younow'dan gelen ziyaretçi sayısı: 1578
+* Duckduckgo'dan gelen ziyaretçi sayısı: 784
+* Slot Oyunu Oynayanlar: 515
+* Canlı Bahis Yapanlar: 4014
+* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %37
+* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %77
+* Günlük Ortalama Ziyaretçi Sayısı: 494

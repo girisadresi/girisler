@@ -4,9 +4,9 @@
 .. image:: images/kolaybet-giris.jpg
    :width: 600
    
-Kolaybet bahis firmasının açılan giriş uzantısı **125kolaybet.com** olarak kurulmuştur. Akıllı telefondan blackjack platformlarına direk giriş yapma sıkıntısı yüzleşen sanal bahis tutkunları o anki değişen yeni giriş adresi arzusuna gitmişlerdir. Takım olarak bize düşen görevi uygulamak isteğiyle aralıksız yasadışı casino platformlarını filtreleyerek size iyilik yapacağız. Kovuşturulan Tarabet397, Pulibet636, Betyap498 ve 122Kolaybet konularıdır.
+Kolaybet platformunun mobil giriş domaini **125kolaybet.com** şeklinde kaydedilmiştir. Akıllı telefondan bakara platformlarına bağlanma sıkıntısı yüzleşen sanal bahis sevenler tam da şuanki kesintisiz erişim adresi arayışına bakmışlardır. Mesai arkadaşlarımızla üstümüze düşen görevi uygulamak hedefiyle daima illegal kumar websitelerini göz atarak deneme bonusu arayanlara yardımcı olacağız. Gözatılan Matadorbet563, Prizmabet492, Bahisbeta477 ve Parasino6791 adres değişiklikleridir.
 
-`GİRİŞ YAPMAK İÇİN TIKLAYIN! <https://urlday.cc/git>`_
+`SİTEYE ERİŞİM İÇİN TIKLAYIN! <https://urlday.cc/git>`_
 ==============
 
 .. list-table:: **SON ADRES DEĞİŞİKLİKLERİ**
@@ -14,26 +14,26 @@ Kolaybet bahis firmasının açılan giriş uzantısı **125kolaybet.com** olara
    :header-rows: 1
 
    * - FİRMA
-   * - `Casinomaxi728 | Casinomaxi 728 <casinomaxi728-casinomaxi-728-casinomaxi-giris-adresi.html>`_
-   * - `Pulibet636 | Pulibet 636 <pulibet636-pulibet-636-pulibet-giris-adresi.html>`_
-   * - `Holiganbet911 | Holiganbet 911 <holiganbet911-holiganbet-911-holiganbet-giris-adresi.html>`_	 
-   * - `Trendbet537 | Trendbet 537 <trendbet537-trendbet-537-trendbet-giris-adresi.html>`_	 
-   * - `Perabet942 | Perabet 942 <perabet942-perabet-942-perabet-giris-adresi.html>`_ 
-   * - `Perabet940 | Perabet 940 <perabet940-perabet-940-perabet-giris-adresi.html>`_
-   * - `Betyap498 | Betyap 498 <betyap498-betyap-498-betyap-giris-adresi.html>`_	 
-   * - `Perabet940 | Perabet 940 <perabet940-perabet-940-perabet-giris-adresi.html>`_
-   * - `Trendbet537 | Trendbet 537 <trendbet537-trendbet-537-trendbet-giris-adresi.html>`_
-   * - `123Kolaybet | 123 Kolaybet <123kolaybet-123-kolaybet-kolaybet-giris-adresi.html>`_
+   * - `Extrabet849 | Extrabet 849 <extrabet849-extrabet-849-extrabet-giris-adresi.html>`_
+   * - `Freybet475 | Freybet 475 <freybet475-freybet-475-freybet-giris-adresi.html>`_
+   * - `Bahisbeta477 | Bahisbeta 477 <bahisbeta477-bahisbeta-477-bahisbeta-giris-adresi.html>`_	 
+   * - `Smartbahis284 | Smartbahis 284 <smartbahis284-smartbahis-284-smartbahis-giris-adresi.html>`_	 
+   * - `GoBahis717 | GoBahis 717 <gobahis717-gobahis-717-gobahis-giris-adresi.html>`_ 
+   * - `Betwild56 | Betwild 56 <betwild56-betwild-56-betwild-giris-adresi.html>`_
+   * - `639Artemisbet | 639 Artemisbet <639artemisbet-639-artemisbet-artemisbet-giris-adresi.html>`_	 
+   * - `Superbetin1207 | Superbetin 1207 <superbetin1207-superbetin-1207-superbetin-giris-adresi.html>`_
+   * - `Metrobahis395 | Metrobahis 395 <metrobahis395-metrobahis-395-metrobahis-giris-adresi.html>`_
+   * - `Onwin1219 | Onwin 1219 <onwin1219-onwin-1219-onwin-giris-adresi.html>`_
 	 
 Kolaybet125 İstatistikleri:
 ===================================	 
-* Adres değişikliği inceleme sayısı: 188
-* Google'dan gelen ziyaretçi sayısı: 4851
-* Yandex'den gelen ziyaretçi sayısı: 1744
-* Younow'dan gelen ziyaretçi sayısı: 1153
-* Duckduckgo'dan gelen ziyaretçi sayısı: 1609
-* Slot Oyunu Oynayanlar: 1728
-* Canlı Bahis Yapanlar: 4854
-* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %57
-* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %85
-* Günlük Ortalama Ziyaretçi Sayısı: 84
+* Adres değişikliği inceleme sayısı: 91
+* Google'dan gelen ziyaretçi sayısı: 2801
+* Yandex'den gelen ziyaretçi sayısı: 1603
+* Younow'dan gelen ziyaretçi sayısı: 1310
+* Duckduckgo'dan gelen ziyaretçi sayısı: 1243
+* Slot Oyunu Oynayanlar: 850
+* Canlı Bahis Yapanlar: 2804
+* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %83
+* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %31
+* Günlük Ortalama Ziyaretçi Sayısı: 75

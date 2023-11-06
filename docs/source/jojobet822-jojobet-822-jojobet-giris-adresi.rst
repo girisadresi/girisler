@@ -4,9 +4,9 @@
 .. image:: images/jojobet-giris.jpg
    :width: 600
    
-Jojobet bahis sitesinin en doğru giriş yolu **jojobet822.com** şeklinde kaydedilmiştir. Bilgisayardan poker sitelerine anında erişim kurma sorunsalı yaşayan canlı bahis sevenler o anki canlı giriş adresi arayışına koyulmuşlardır. Gruptaki arkadaşlarla üstümüze düşen görevi icra etmek nedeniyle her an güvenilir sanal bahis sitelerini göz atarak siz sevgili ziyaretçilere iyilik yapacağız. Kovuşturulan Atlantisbahis465, 296Gorabet, Perabet940 ve Casinomaxi729 sorgulamalarıdır.
+Jojobet sitesinin en kusursuz giriş noktası **jojobet822.com** isminde yansımıştır. Mobilden rulet websitelerine direk erişim hatası yaşayan bahis severler tam da bu anki değişen aktif giriş adresi hevesine gözatmışlardır. Çalışma arkadaşları olarak bize düşen görevi icra etmek bilinciyle aralıksız yurtdışı rulet şirketlerini belirterek bonus alacaklara ön ayak olacağız. Gözatılan Avrupabet419, Hititbet348, 547Betticket ve Akcebet356 adres değişimleridir.
 
-`GİTMEK İÇİN TIKLAYIN! <https://urlday.cc/git>`_
+`GİRİŞ YAPMAK İÇİN TIKLAYIN! <https://urlday.cc/git>`_
 ==============
 
 .. list-table:: **SON ADRES DEĞİŞİKLİKLERİ**
@@ -14,26 +14,26 @@ Jojobet bahis sitesinin en doğru giriş yolu **jojobet822.com** şeklinde kayde
    :header-rows: 1
 
    * - FİRMA
-   * - `Casinomaxi729 | Casinomaxi 729 <casinomaxi729-casinomaxi-729-casinomaxi-giris-adresi.html>`_
-   * - `Tarabet395 | Tarabet 395 <tarabet395-tarabet-395-tarabet-giris-adresi.html>`_
-   * - `Enobahis397 | Enobahis 397 <enobahis397-enobahis-397-enobahis-giris-adresi.html>`_	 
-   * - `Jojobet825 | Jojobet 825 <jojobet825-jojobet-825-jojobet-giris-adresi.html>`_	 
-   * - `Tarabet397 | Tarabet 397 <tarabet397-tarabet-397-tarabet-giris-adresi.html>`_ 
-   * - `Limanbet528 | Limanbet 528 <limanbet528-limanbet-528-limanbet-giris-adresi.html>`_
-   * - `Pusulabet694 | Pusulabet 694 <pusulabet694-pusulabet-694-pusulabet-giris-adresi.html>`_	 
-   * - `Casinomaxi728 | Casinomaxi 728 <casinomaxi728-casinomaxi-728-casinomaxi-giris-adresi.html>`_
-   * - `Perabet941 | Perabet 941 <perabet941-perabet-941-perabet-giris-adresi.html>`_
-   * - `Kavbet426 | Kavbet 426 <kavbet426-kavbet-426-kavbet-giris-adresi.html>`_
+   * - `Casinovale556 | Casinovale 556 <casinovale556-casinovale-556-casinovale-giris-adresi.html>`_
+   * - `Vdcasino919 | Vdcasino 919 <vdcasino919-vdcasino-919-vdcasino-giris-adresi.html>`_
+   * - `Hitbet443 | Hitbet 443 <hitbet443-hitbet-443-hitbet-giris-adresi.html>`_	 
+   * - `Betlio474 | Betlio 474 <betlio474-betlio-474-betlio-giris-adresi.html>`_	 
+   * - `Stonebahis345 | Stonebahis 345 <stonebahis345-stonebahis-345-stonebahis-giris-adresi.html>`_ 
+   * - `Smartbahis282 | Smartbahis 282 <smartbahis282-smartbahis-282-smartbahis-giris-adresi.html>`_
+   * - `Hititbet346 | Hititbet 346 <hititbet346-hititbet-346-hititbet-giris-adresi.html>`_	 
+   * - `Matbet719 | Matbet 719 <matbet719-matbet-719-matbet-giris-adresi.html>`_
+   * - `Imajbet1372 | Imajbet 1372 <imajbet1372-imajbet-1372-imajbet-giris-adresi.html>`_
+   * - `Lordbahis444 | Lordbahis 444 <lordbahis444-lordbahis-444-lordbahis-giris-adresi.html>`_
 	 
 Jojobet822 İstatistikleri:
 ===================================	 
-* Adres değişikliği inceleme sayısı: 93
-* Google'dan gelen ziyaretçi sayısı: 4041
-* Yandex'den gelen ziyaretçi sayısı: 617
-* Younow'dan gelen ziyaretçi sayısı: 798
-* Duckduckgo'dan gelen ziyaretçi sayısı: 585
-* Slot Oyunu Oynayanlar: 1370
-* Canlı Bahis Yapanlar: 4044
-* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %84
-* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %38
-* Günlük Ortalama Ziyaretçi Sayısı: 148
+* Adres değişikliği inceleme sayısı: 406
+* Google'dan gelen ziyaretçi sayısı: 3911
+* Yandex'den gelen ziyaretçi sayısı: 1927
+* Younow'dan gelen ziyaretçi sayısı: 1295
+* Duckduckgo'dan gelen ziyaretçi sayısı: 923
+* Slot Oyunu Oynayanlar: 1714
+* Canlı Bahis Yapanlar: 3914
+* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %81
+* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %81
+* Günlük Ortalama Ziyaretçi Sayısı: 459

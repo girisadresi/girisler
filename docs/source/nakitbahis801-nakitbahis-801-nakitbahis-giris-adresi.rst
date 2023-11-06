@@ -4,9 +4,9 @@
 .. image:: images/nakitbahis-giris.jpg
    :width: 600
    
-Nakitbahis bahis firmasının en hatasız giriş adresi **nakitbahis801.com** isminde yansıtılmıştır. İnternet üzerinden canlı blackjack websitelerine direk bağlantı kurma sorunsalı karşı karşıya kalan rulet oyuncuları tam da şimdiki güncel yeni giriş adresi arzusuna gitmişlerdir. Ekipçe bize düşen sorumluluğu uygulamak amacıyla ara vermeden Türkiye'nin önde gelen  canlı blackjack şirketlerini araştırarak kullanıcılara iyilik yapacağız. Sorgulanan 298Gorabet, Betyap496, Perabet942 ve Betyap498 sorgulamalarıdır.
+Nakitbahis platformunun anında giriş noktası **nakitbahis801.com** şeklinde sunulmuştur. Bilgisayardan canlı blackjack websitelerine anında ulaşım sağlama problemi yaşayan sanal bahis tutkunları tam da şuanki güncel yeni giriş adresi isteğine koyulmuşlardır. Ekipçe üstümüze düşen görevi icra etmek hedefiyle ara vermeden belge talep etmeyen rulet ofislerini araştırıp sayın takipçilere ön ayak olacağız. Sorgulanan 312Slotbar, Mobilbahis941, Metrobahis394 ve Pusulabet694 konularıdır.
 
-`DEVAM ETMEK İÇİN TIKLAYIN! <https://urlday.cc/git>`_
+`GİRİŞ YAPMAK İÇİN TIKLAYIN! <https://urlday.cc/git>`_
 ==============
 
 .. list-table:: **SON ADRES DEĞİŞİKLİKLERİ**
@@ -14,26 +14,26 @@ Nakitbahis bahis firmasının en hatasız giriş adresi **nakitbahis801.com** is
    :header-rows: 1
 
    * - FİRMA
-   * - `Betyap496 | Betyap 496 <betyap496-betyap-496-betyap-giris-adresi.html>`_
-   * - `Pulibet634 | Pulibet 634 <pulibet634-pulibet-634-pulibet-giris-adresi.html>`_
-   * - `Atlantisbahis463 | Atlantisbahis 463 <atlantisbahis463-atlantisbahis-463-atlantisbahis-giris-adresi.html>`_	 
-   * - `Hayalbahis454 | Hayalbahis 454 <hayalbahis454-hayalbahis-454-hayalbahis-giris-adresi.html>`_	 
-   * - `295Gorabet | 295 Gorabet <295gorabet-295-gorabet-gorabet-giris-adresi.html>`_ 
-   * - `Pulibet633 | Pulibet 633 <pulibet633-pulibet-633-pulibet-giris-adresi.html>`_
-   * - `295Gorabet | 295 Gorabet <295gorabet-295-gorabet-gorabet-giris-adresi.html>`_	 
-   * - `Betyap497 | Betyap 497 <betyap497-betyap-497-betyap-giris-adresi.html>`_
-   * - `Trendbet536 | Trendbet 536 <trendbet536-trendbet-536-trendbet-giris-adresi.html>`_
-   * - `Pulibet634 | Pulibet 634 <pulibet634-pulibet-634-pulibet-giris-adresi.html>`_
+   * - `Bahigo1604 | Bahigo 1604 <bahigo1604-bahigo-1604-bahigo-giris-adresi.html>`_
+   * - `ShowBahis312 | ShowBahis 312 <showbahis312-showbahis-312-showbahis-giris-adresi.html>`_
+   * - `Klasbahis744 | Klasbahis 744 <klasbahis744-klasbahis-744-klasbahis-giris-adresi.html>`_	 
+   * - `Bahigo1606 | Bahigo 1606 <bahigo1606-bahigo-1606-bahigo-giris-adresi.html>`_	 
+   * - `Santosbetting348 | Santosbetting 348 <santosbetting348-santosbetting-348-santosbetting-giris-adresi.html>`_ 
+   * - `Betsilin437 | Betsilin 437 <betsilin437-betsilin-437-betsilin-giris-adresi.html>`_
+   * - `Cratossporting330 | Cratossporting 330 <cratossporting330-cratossporting-330-cratossporting-giris-adresi.html>`_	 
+   * - `Betpipo380 | Betpipo 380 <betpipo380-betpipo-380-betpipo-giris-adresi.html>`_
+   * - `Betist1195 | Betist 1195 <betist1195-betist-1195-betist-giris-adresi.html>`_
+   * - `Neyine433 | Neyine 433 <neyine433-neyine-433-neyine-giris-adresi.html>`_
 	 
 Nakitbahis801 İstatistikleri:
 ===================================	 
-* Adres değişikliği inceleme sayısı: 210
-* Google'dan gelen ziyaretçi sayısı: 3631
-* Yandex'den gelen ziyaretçi sayısı: 1666
-* Younow'dan gelen ziyaretçi sayısı: 1065
-* Duckduckgo'dan gelen ziyaretçi sayısı: 759
-* Slot Oyunu Oynayanlar: 1928
-* Canlı Bahis Yapanlar: 3634
-* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %91
-* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %19
-* Günlük Ortalama Ziyaretçi Sayısı: 134
+* Adres değişikliği inceleme sayısı: 331
+* Google'dan gelen ziyaretçi sayısı: 2851
+* Yandex'den gelen ziyaretçi sayısı: 797
+* Younow'dan gelen ziyaretçi sayısı: 1946
+* Duckduckgo'dan gelen ziyaretçi sayısı: 1232
+* Slot Oyunu Oynayanlar: 1524
+* Canlı Bahis Yapanlar: 2854
+* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %12
+* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %87
+* Günlük Ortalama Ziyaretçi Sayısı: 227

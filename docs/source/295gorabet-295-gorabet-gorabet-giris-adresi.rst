@@ -4,9 +4,9 @@
 .. image:: images/gorabet-giris.jpg
    :width: 600
    
-Gorabet bahis platformunun en kusursuz giriş yeri **295gorabet.com** halinde söylenmiştir. Türkiye'de poker ofislerine direk bağlantı sağlama hatası yaşayan canlı bahis sevenler bugününkü güncel giriş adresi arzusuna girişmişlerdir. Yanımızdakilerle bize düşen görevi icra etmek amacıyla aralıksız yabancı sanal bahis bürolarını analiz yaparak para yatırmak isteyenlere ön ayak olacağız. Bakılan Tarabet398, Kavbet426, Enobahis394 ve Perabet941 adres değişimleridir.
+Gorabet bahis firmasının mobil giriş domaini **295gorabet.com** halinde kayıt yaptırılmıştır. Türkiye'de poker platformlarına bağlanma sıkıntısı ile karşılaşan oyun hastaları bugününkü değişen mobil giriş adresi arayışına gitmişlerdir. Ekipçe üstümüze düşen görevi yerine getirmek nedeniyle daima illegal bahis platformlarını araştırarak bitcoin ile ödeme yapacaklara iyilik yapacağız. Sorgulanan Sahabet1061, 54Mariobet, Capitolbet331 ve Cashwin577 adres değişimleridir.
 
-`GİRİŞ YAPMAK İÇİN TIKLAYIN! <https://urlday.cc/git>`_
+`GİTMEK İÇİN TIKLAYIN! <https://urlday.cc/git>`_
 ==============
 
 .. list-table:: **SON ADRES DEĞİŞİKLİKLERİ**
@@ -14,26 +14,26 @@ Gorabet bahis platformunun en kusursuz giriş yeri **295gorabet.com** halinde s�
    :header-rows: 1
 
    * - FİRMA
-   * - `Limanbet530 | Limanbet 530 <limanbet530-limanbet-530-limanbet-giris-adresi.html>`_
-   * - `297Gorabet | 297 Gorabet <297gorabet-297-gorabet-gorabet-giris-adresi.html>`_
-   * - `Trendbet536 | Trendbet 536 <trendbet536-trendbet-536-trendbet-giris-adresi.html>`_	 
-   * - `Perabet942 | Perabet 942 <perabet942-perabet-942-perabet-giris-adresi.html>`_	 
-   * - `296Gorabet | 296 Gorabet <296gorabet-296-gorabet-gorabet-giris-adresi.html>`_ 
-   * - `Tarabet395 | Tarabet 395 <tarabet395-tarabet-395-tarabet-giris-adresi.html>`_
-   * - `Betyap497 | Betyap 497 <betyap497-betyap-497-betyap-giris-adresi.html>`_	 
-   * - `122Kolaybet | 122 Kolaybet <122kolaybet-122-kolaybet-kolaybet-giris-adresi.html>`_
-   * - `123Kolaybet | 123 Kolaybet <123kolaybet-123-kolaybet-kolaybet-giris-adresi.html>`_
-   * - `Casinomaxi729 | Casinomaxi 729 <casinomaxi729-casinomaxi-729-casinomaxi-giris-adresi.html>`_
+   * - `Betnis414 | Betnis 414 <betnis414-betnis-414-betnis-giris-adresi.html>`_
+   * - `Discountcasino522 | Discountcasino 522 <discountcasino522-discountcasino-522-discountcasino-giris-adresi.html>`_
+   * - `Extrabet846 | Extrabet 846 <extrabet846-extrabet-846-extrabet-giris-adresi.html>`_	 
+   * - `Betzmark634 | Betzmark 634 <betzmark634-betzmark-634-betzmark-giris-adresi.html>`_	 
+   * - `Wsbets231 | Wsbets 231 <wsbets231-wsbets-231-wsbets-giris-adresi.html>`_ 
+   * - `Stonebahis348 | Stonebahis 348 <stonebahis348-stonebahis-348-stonebahis-giris-adresi.html>`_
+   * - `Akcebet357 | Akcebet 357 <akcebet357-akcebet-357-akcebet-giris-adresi.html>`_	 
+   * - `Radissonbet114 | Radissonbet 114 <radissonbet114-radissonbet-114-radissonbet-giris-adresi.html>`_
+   * - `Belugabahis629 | Belugabahis 629 <belugabahis629-belugabahis-629-belugabahis-giris-adresi.html>`_
+   * - `Parisbahis515 | Parisbahis 515 <parisbahis515-parisbahis-515-parisbahis-giris-adresi.html>`_
 	 
 Gorabet295 İstatistikleri:
 ===================================	 
-* Adres değişikliği inceleme sayısı: 73
-* Google'dan gelen ziyaretçi sayısı: 501
-* Yandex'den gelen ziyaretçi sayısı: 1425
-* Younow'dan gelen ziyaretçi sayısı: 1045
-* Duckduckgo'dan gelen ziyaretçi sayısı: 1941
-* Slot Oyunu Oynayanlar: 1882
-* Canlı Bahis Yapanlar: 504
-* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %11
-* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %91
-* Günlük Ortalama Ziyaretçi Sayısı: 79
+* Adres değişikliği inceleme sayısı: 330
+* Google'dan gelen ziyaretçi sayısı: 151
+* Yandex'den gelen ziyaretçi sayısı: 1511
+* Younow'dan gelen ziyaretçi sayısı: 1537
+* Duckduckgo'dan gelen ziyaretçi sayısı: 821
+* Slot Oyunu Oynayanlar: 551
+* Canlı Bahis Yapanlar: 154
+* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %60
+* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %54
+* Günlük Ortalama Ziyaretçi Sayısı: 162

@@ -4,7 +4,7 @@
 .. image:: images/gorabet-giris.jpg
    :width: 600
    
-Gorabet bürosunun en güvenli giriş bağlantısı **299gorabet.com** halinde bildirilmiştir. Türkiye'de blackjack platformlarına direk bağlanma sorunu karşı karşıya kalan casino oyuncuları şimdiki bağlantı adresi arayışına koyulmuşlardır. Çalışanlarımızla üstümüze düşen şeyleri yerine getirmek bilinciyle uzman gözümüzle Türkiye'nin önde gelen  bahis bürolarını araştırarak kayıt yapacak olanlara yardım edeceğiz. Konuşulan Limanbet528, Casinomaxi729, Pulibet636 ve Jojobet822 içerikleridir.
+Gorabet websitesinin tablet giriş adresi **299gorabet.com** halinde kaydedilmiştir. Bu ülkede bakara sitelerine direk bağlantı sağlama sıkıntısı yüzleşen sanal bahis sevenler tam da şimdiki çalışan adresi hevesine girişmişlerdir. Biz de bize düşen görevi uygulamak hevesiyle aralıksız güvenli canlı kumar şirketlerini göz atarak ziyaretçilere iyilik yapacağız. Konuşulan Belugabahis631, Betcio386, Smartbahis283 ve Betsat1148 içerikleridir.
 
 `GİTMEK İÇİN TIKLAYIN! <https://urlday.cc/git>`_
 ==============
@@ -14,26 +14,26 @@ Gorabet bürosunun en güvenli giriş bağlantısı **299gorabet.com** halinde b
    :header-rows: 1
 
    * - FİRMA
-   * - `Holiganbet912 | Holiganbet 912 <holiganbet912-holiganbet-912-holiganbet-giris-adresi.html>`_
-   * - `Jojobet823 | Jojobet 823 <jojobet823-jojobet-823-jojobet-giris-adresi.html>`_
-   * - `Holiganbet910 | Holiganbet 910 <holiganbet910-holiganbet-910-holiganbet-giris-adresi.html>`_	 
-   * - `Limanbet529 | Limanbet 529 <limanbet529-limanbet-529-limanbet-giris-adresi.html>`_	 
-   * - `Kavbet425 | Kavbet 425 <kavbet425-kavbet-425-kavbet-giris-adresi.html>`_ 
-   * - `Atlantisbahis464 | Atlantisbahis 464 <atlantisbahis464-atlantisbahis-464-atlantisbahis-giris-adresi.html>`_
-   * - `Nakitbahis800 | Nakitbahis 800 <nakitbahis800-nakitbahis-800-nakitbahis-giris-adresi.html>`_	 
-   * - `Trendbet538 | Trendbet 538 <trendbet538-trendbet-538-trendbet-giris-adresi.html>`_
-   * - `295Gorabet | 295 Gorabet <295gorabet-295-gorabet-gorabet-giris-adresi.html>`_
-   * - `Pulibet636 | Pulibet 636 <pulibet636-pulibet-636-pulibet-giris-adresi.html>`_
+   * - `520Bahiscom | 520 Bahiscom <520bahiscom-520-bahiscom-bahiscom-giris-adresi.html>`_
+   * - `Teslabahis317 | Teslabahis 317 <teslabahis317-teslabahis-317-teslabahis-giris-adresi.html>`_
+   * - `Yodabet317 | Yodabet 317 <yodabet317-yodabet-317-yodabet-giris-adresi.html>`_	 
+   * - `Nerobet405 | Nerobet 405 <nerobet405-nerobet-405-nerobet-giris-adresi.html>`_	 
+   * - `Dinamobet761 | Dinamobet 761 <dinamobet761-dinamobet-761-dinamobet-giris-adresi.html>`_ 
+   * - `Onwin1220 | Onwin 1220 <onwin1220-onwin-1220-onwin-giris-adresi.html>`_
+   * - `36Bahisnow | 36 Bahisnow <36bahisnow-36-bahisnow-bahisnow-giris-adresi.html>`_	 
+   * - `Betixir385 | Betixir 385 <betixir385-betixir-385-betixir-giris-adresi.html>`_
+   * - `Coinbar267 | Coinbar 267 <coinbar267-coinbar-267-coinbar-giris-adresi.html>`_
+   * - `Arzbahis196 | Arzbahis 196 <arzbahis196-arzbahis-196-arzbahis-giris-adresi.html>`_
 	 
 Gorabet299 İstatistikleri:
 ===================================	 
-* Adres değişikliği inceleme sayısı: 443
-* Google'dan gelen ziyaretçi sayısı: 2881
-* Yandex'den gelen ziyaretçi sayısı: 1091
-* Younow'dan gelen ziyaretçi sayısı: 1505
-* Duckduckgo'dan gelen ziyaretçi sayısı: 1424
-* Slot Oyunu Oynayanlar: 1875
-* Canlı Bahis Yapanlar: 2884
-* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %46
-* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %51
-* Günlük Ortalama Ziyaretçi Sayısı: 151
+* Adres değişikliği inceleme sayısı: 398
+* Google'dan gelen ziyaretçi sayısı: 4661
+* Yandex'den gelen ziyaretçi sayısı: 1836
+* Younow'dan gelen ziyaretçi sayısı: 1186
+* Duckduckgo'dan gelen ziyaretçi sayısı: 536
+* Slot Oyunu Oynayanlar: 560
+* Canlı Bahis Yapanlar: 4664
+* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %53
+* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %37
+* Günlük Ortalama Ziyaretçi Sayısı: 390

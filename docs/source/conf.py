@@ -38,6 +38,7 @@ html_favicon = 'favicon.ico'
 html_theme_options = {
     # Disable showing the sidebar. Defaults to 'false'
     'nosidebar': True,
+    'display_version': False
 }
-
+html_show_sourcelink = False
 vcs_pageview_mode='view'

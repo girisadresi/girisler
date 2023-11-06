@@ -4,9 +4,9 @@
 .. image:: images/pusulabet-giris.jpg
    :width: 600
    
-Pusulabet bürosunun erişim derdi olmayan giriş bağlantısı **pusulabet696.com** isminde yansıtılmıştır. Türkiye'de casino şirketlerine direk bağlantı kurma sıkıntısı yüzleşen oyun hastaları tam da şuanki değişen aktif giriş adresi arayışına koyulmuşlardır. Personellerimizle bize düşen sorumluluğu icra etmek duygusuyla her an lisanslı canlı rulet ofislerini araştırarak oyunculara yardım edeceğiz. Sorgulanan Tarabet396, Hayalbahis454, Atlantisbahis462 ve Perabet941 yeni aramalarıdır.
+Pusulabet platformunun en güzel giriş domaini **pusulabet696.com** halinde yazılmıştır. Akıllı telefondan casino bürolarına direk ulaşım sorunsalı yüzleşen oyun hastaları o anki kesintisiz erişim adresi arayışına koyulmuşlardır. Ekipçe üstümüze düşen sorumluluğu uygulamak nedeniyle aralıksız yurtdışı rulet platformlarını analiz yaparak kullanıcılara yardım edeceğiz. Gözatılan Setrabet633, Betbigo498, Piabellacasino316 ve Galabet793 başlıklarıdır.
 
-`SİTEYE ERİŞİM İÇİN TIKLAYIN! <https://urlday.cc/git>`_
+`GİTMEK İÇİN TIKLAYIN! <https://urlday.cc/git>`_
 ==============
 
 .. list-table:: **SON ADRES DEĞİŞİKLİKLERİ**
@@ -14,26 +14,26 @@ Pusulabet bürosunun erişim derdi olmayan giriş bağlantısı **pusulabet696.c
    :header-rows: 1
 
    * - FİRMA
-   * - `Limanbet530 | Limanbet 530 <limanbet530-limanbet-530-limanbet-giris-adresi.html>`_
-   * - `Atlantisbahis465 | Atlantisbahis 465 <atlantisbahis465-atlantisbahis-465-atlantisbahis-giris-adresi.html>`_
-   * - `124Kolaybet | 124 Kolaybet <124kolaybet-124-kolaybet-kolaybet-giris-adresi.html>`_	 
-   * - `123Kolaybet | 123 Kolaybet <123kolaybet-123-kolaybet-kolaybet-giris-adresi.html>`_	 
-   * - `Pusulabet695 | Pusulabet 695 <pusulabet695-pusulabet-695-pusulabet-giris-adresi.html>`_ 
-   * - `Kavbet426 | Kavbet 426 <kavbet426-kavbet-426-kavbet-giris-adresi.html>`_
-   * - `Tarabet396 | Tarabet 396 <tarabet396-tarabet-396-tarabet-giris-adresi.html>`_	 
-   * - `Perabet941 | Perabet 941 <perabet941-perabet-941-perabet-giris-adresi.html>`_
-   * - `Betyap499 | Betyap 499 <betyap499-betyap-499-betyap-giris-adresi.html>`_
-   * - `121Kolaybet | 121 Kolaybet <121kolaybet-121-kolaybet-kolaybet-giris-adresi.html>`_
+   * - `Heybet535 | Heybet 535 <heybet535-heybet-535-heybet-giris-adresi.html>`_
+   * - `Nerobet404 | Nerobet 404 <nerobet404-nerobet-404-nerobet-giris-adresi.html>`_
+   * - `Betgit511 | Betgit 511 <betgit511-betgit-511-betgit-giris-adresi.html>`_	 
+   * - `Betmoon563 | Betmoon 563 <betmoon563-betmoon-563-betmoon-giris-adresi.html>`_	 
+   * - `Galabet793 | Galabet 793 <galabet793-galabet-793-galabet-giris-adresi.html>`_ 
+   * - `Betist1194 | Betist 1194 <betist1194-betist-1194-betist-giris-adresi.html>`_
+   * - `Madridbet668 | Madridbet 668 <madridbet668-madridbet-668-madridbet-giris-adresi.html>`_	 
+   * - `Esbet129 | Esbet 129 <esbet129-esbet-129-esbet-giris-adresi.html>`_
+   * - `Winbir394 | Winbir 394 <winbir394-winbir-394-winbir-giris-adresi.html>`_
+   * - `Hızlıcasino215 | Hızlıcasino 215 <hizlicasino215-hizlicasino-215-hizlicasino-giris-adresi.html>`_
 	 
 Pusulabet696 İstatistikleri:
 ===================================	 
-* Adres değişikliği inceleme sayısı: 170
-* Google'dan gelen ziyaretçi sayısı: 791
-* Yandex'den gelen ziyaretçi sayısı: 1769
-* Younow'dan gelen ziyaretçi sayısı: 735
-* Duckduckgo'dan gelen ziyaretçi sayısı: 1034
-* Slot Oyunu Oynayanlar: 518
-* Canlı Bahis Yapanlar: 794
-* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %54
-* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %29
-* Günlük Ortalama Ziyaretçi Sayısı: 409
+* Adres değişikliği inceleme sayısı: 84
+* Google'dan gelen ziyaretçi sayısı: 2821
+* Yandex'den gelen ziyaretçi sayısı: 1629
+* Younow'dan gelen ziyaretçi sayısı: 580
+* Duckduckgo'dan gelen ziyaretçi sayısı: 1120
+* Slot Oyunu Oynayanlar: 1906
+* Canlı Bahis Yapanlar: 2824
+* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %92
+* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %80
+* Günlük Ortalama Ziyaretçi Sayısı: 400

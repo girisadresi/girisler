@@ -4,9 +4,9 @@
 .. image:: images/gorabet-giris.jpg
    :width: 600
    
-Gorabet platformunun erişim derdi olmayan giriş adresi **296gorabet.com** olarak yazılmıştır. İnternet üzerinden slot şirketlerine direk ulaşım sağlama sorunsalı yüzleşen oyun severleri günümüzdeki değişen mobil giriş adresi arayışına girişmişlerdir. Gruptaki arkadaşlarla bize düşen sorumluluğu yerine getirmek bilinciyle kesintisiz yabancı slot ofislerini araştırarak siz sevgili kullanıcılara yardım edeceğiz. Sorgulanan Kavbet426, Nakitbahis800, 124Kolaybet ve Pusulabet697 adres değişimleridir.
+Gorabet websitesinin pürüzsüz giriş yeri **296gorabet.com** isminde yönlendirilmiştir. Telefondan slot platformlarına anında erişim kurma sorunsalı karşı karşıya kalan oyun severleri tam da şuanki değişen aktif giriş adresi hevesine girişmişlerdir. Yanımızdakilerle üstümüze düşen sorumluluğu icra etmek ümidiyle daima Ülkemizde popüler olan  slot bürolarını araştırarak deneme bonusu arayanlara yardım edeceğiz. Bakılan Ngsbahis629, Teslabahis318, Casinomega418 ve 458Türkbet sorgulamalarıdır.
 
-`GİRİŞ YAPMAK İÇİN TIKLAYIN! <https://urlday.cc/git>`_
+`GİRİŞ İÇİN TIKLAYIN! <https://urlday.cc/git>`_
 ==============
 
 .. list-table:: **SON ADRES DEĞİŞİKLİKLERİ**
@@ -14,26 +14,26 @@ Gorabet platformunun erişim derdi olmayan giriş adresi **296gorabet.com** olar
    :header-rows: 1
 
    * - FİRMA
-   * - `Pulibet635 | Pulibet 635 <pulibet635-pulibet-635-pulibet-giris-adresi.html>`_
-   * - `Pulibet636 | Pulibet 636 <pulibet636-pulibet-636-pulibet-giris-adresi.html>`_
-   * - `Betyap498 | Betyap 498 <betyap498-betyap-498-betyap-giris-adresi.html>`_	 
-   * - `Casinomaxi729 | Casinomaxi 729 <casinomaxi729-casinomaxi-729-casinomaxi-giris-adresi.html>`_	 
-   * - `Pusulabet696 | Pusulabet 696 <pusulabet696-pusulabet-696-pusulabet-giris-adresi.html>`_ 
-   * - `124Kolaybet | 124 Kolaybet <124kolaybet-124-kolaybet-kolaybet-giris-adresi.html>`_
-   * - `122Kolaybet | 122 Kolaybet <122kolaybet-122-kolaybet-kolaybet-giris-adresi.html>`_	 
-   * - `Pusulabet694 | Pusulabet 694 <pusulabet694-pusulabet-694-pusulabet-giris-adresi.html>`_
-   * - `Hayalbahis454 | Hayalbahis 454 <hayalbahis454-hayalbahis-454-hayalbahis-giris-adresi.html>`_
-   * - `Jojobet823 | Jojobet 823 <jojobet823-jojobet-823-jojobet-giris-adresi.html>`_
+   * - `Jasminbet590 | Jasminbet 590 <jasminbet590-jasminbet-590-jasminbet-giris-adresi.html>`_
+   * - `Odeonbet499 | Odeonbet 499 <odeonbet499-odeonbet-499-odeonbet-giris-adresi.html>`_
+   * - `Paşacasino417 | Paşacasino 417 <pasacasino417-pasacasino-417-pasacasino-giris-adresi.html>`_	 
+   * - `Betadonis494 | Betadonis 494 <betadonis494-betadonis-494-betadonis-giris-adresi.html>`_	 
+   * - `Sahabet1063 | Sahabet 1063 <sahabet1063-sahabet-1063-sahabet-giris-adresi.html>`_ 
+   * - `Mottobet403 | Mottobet 403 <mottobet403-mottobet-403-mottobet-giris-adresi.html>`_
+   * - `Superbahis751 | Superbahis 751 <superbahis751-superbahis-751-superbahis-giris-adresi.html>`_	 
+   * - `Nevacasino359 | Nevacasino 359 <nevacasino359-nevacasino-359-nevacasino-giris-adresi.html>`_
+   * - `Enobahis395 | Enobahis 395 <enobahis395-enobahis-395-enobahis-giris-adresi.html>`_
+   * - `Betroad223 | Betroad 223 <betroad223-betroad-223-betroad-giris-adresi.html>`_
 	 
 Gorabet296 İstatistikleri:
 ===================================	 
-* Adres değişikliği inceleme sayısı: 489
-* Google'dan gelen ziyaretçi sayısı: 3111
-* Yandex'den gelen ziyaretçi sayısı: 1486
-* Younow'dan gelen ziyaretçi sayısı: 1890
-* Duckduckgo'dan gelen ziyaretçi sayısı: 884
-* Slot Oyunu Oynayanlar: 1104
-* Canlı Bahis Yapanlar: 3114
-* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %86
-* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %69
-* Günlük Ortalama Ziyaretçi Sayısı: 282
+* Adres değişikliği inceleme sayısı: 266
+* Google'dan gelen ziyaretçi sayısı: 2001
+* Yandex'den gelen ziyaretçi sayısı: 517
+* Younow'dan gelen ziyaretçi sayısı: 1777
+* Duckduckgo'dan gelen ziyaretçi sayısı: 1186
+* Slot Oyunu Oynayanlar: 988
+* Canlı Bahis Yapanlar: 2004
+* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %0
+* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %19
+* Günlük Ortalama Ziyaretçi Sayısı: 369

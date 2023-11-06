@@ -4,9 +4,9 @@
 .. image:: images/holiganbet-giris.jpg
    :width: 600
    
-Holiganbet bürosunun engelsiz giriş noktası **holiganbet910.com** olarak yazılmıştır. Yaşadığımız şehirde blackjack platformlarına erişim sağlama sıkıntısı yüzleşen casino oyuncuları günümüzdeki kesintisiz erişim adresi hevesine koyulmuşlardır. Ekipçe üstümüze düşen görevi uygulamak hedefiyle ara vermeden Hızlı hizmet kalitesine sahip canlı casino websitelerini filtreleyerek payfix ile ödeme yapacaklara yardımcı olacağız. Soruşturulan Holiganbet911, Kavbet427, Trendbet538 ve 295Gorabet sorgulamalarıdır.
+Holiganbet bahis sitesinin güvenilir giriş yeri **holiganbet910.com** isminde kayıtlanmıştır. Mobil cihazlardan casino platformlarına direk bağlantı kurma sorunu yaşayan oyun bağımlıları şimdiki canlı bağlantı adresi arzusuna gitmişlerdir. Çalışma arkadaşları olarak üstümüze düşen şeyleri uygulamak hedefiyle her an ödeme yapan rulet bürolarını belirterek size yardım edeceğiz. Konuşulan Hızlıbahis568, Galaxybetting485, Teslabahis318 ve Olabahis493 içerikleridir.
 
-`GİRİŞ İÇİN TIKLAYIN! <https://urlday.cc/git>`_
+`DEVAM ETMEK İÇİN TIKLAYIN! <https://urlday.cc/git>`_
 ==============
 
 .. list-table:: **SON ADRES DEĞİŞİKLİKLERİ**
@@ -14,26 +14,26 @@ Holiganbet bürosunun engelsiz giriş noktası **holiganbet910.com** olarak yaz�
    :header-rows: 1
 
    * - FİRMA
-   * - `Trendbet536 | Trendbet 536 <trendbet536-trendbet-536-trendbet-giris-adresi.html>`_
-   * - `Pusulabet694 | Pusulabet 694 <pusulabet694-pusulabet-694-pusulabet-giris-adresi.html>`_
-   * - `296Gorabet | 296 Gorabet <296gorabet-296-gorabet-gorabet-giris-adresi.html>`_	 
-   * - `Enobahis394 | Enobahis 394 <enobahis394-enobahis-394-enobahis-giris-adresi.html>`_	 
-   * - `122Kolaybet | 122 Kolaybet <122kolaybet-122-kolaybet-kolaybet-giris-adresi.html>`_ 
-   * - `Trendbet535 | Trendbet 535 <trendbet535-trendbet-535-trendbet-giris-adresi.html>`_
-   * - `124Kolaybet | 124 Kolaybet <124kolaybet-124-kolaybet-kolaybet-giris-adresi.html>`_	 
-   * - `Kavbet424 | Kavbet 424 <kavbet424-kavbet-424-kavbet-giris-adresi.html>`_
-   * - `Pulibet634 | Pulibet 634 <pulibet634-pulibet-634-pulibet-giris-adresi.html>`_
-   * - `Atlantisbahis462 | Atlantisbahis 462 <atlantisbahis462-atlantisbahis-462-atlantisbahis-giris-adresi.html>`_
+   * - `Bahisal534 | Bahisal 534 <bahisal534-bahisal-534-bahisal-giris-adresi.html>`_
+   * - `Hertabet227 | Hertabet 227 <hertabet227-hertabet-227-hertabet-giris-adresi.html>`_
+   * - `Casinogaranti622 | Casinogaranti 622 <casinogaranti622-casinogaranti-622-casinogaranti-giris-adresi.html>`_	 
+   * - `Bahigo1603 | Bahigo 1603 <bahigo1603-bahigo-1603-bahigo-giris-adresi.html>`_	 
+   * - `Betmarino728 | Betmarino 728 <betmarino728-betmarino-728-betmarino-giris-adresi.html>`_ 
+   * - `Atlasbet543 | Atlasbet 543 <atlasbet543-atlasbet-543-atlasbet-giris-adresi.html>`_
+   * - `Betproton410 | Betproton 410 <betproton410-betproton-410-betproton-giris-adresi.html>`_	 
+   * - `Imajbet1372 | Imajbet 1372 <imajbet1372-imajbet-1372-imajbet-giris-adresi.html>`_
+   * - `396Kingbetting | 396 Kingbetting <396kingbetting-396-kingbetting-kingbetting-giris-adresi.html>`_
+   * - `Loyalbahis282 | Loyalbahis 282 <loyalbahis282-loyalbahis-282-loyalbahis-giris-adresi.html>`_
 	 
 Holiganbet910 İstatistikleri:
 ===================================	 
-* Adres değişikliği inceleme sayısı: 433
-* Google'dan gelen ziyaretçi sayısı: 2121
-* Yandex'den gelen ziyaretçi sayısı: 627
-* Younow'dan gelen ziyaretçi sayısı: 1746
-* Duckduckgo'dan gelen ziyaretçi sayısı: 1660
-* Slot Oyunu Oynayanlar: 1719
-* Canlı Bahis Yapanlar: 2124
-* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %55
-* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %91
-* Günlük Ortalama Ziyaretçi Sayısı: 119
+* Adres değişikliği inceleme sayısı: 405
+* Google'dan gelen ziyaretçi sayısı: 141
+* Yandex'den gelen ziyaretçi sayısı: 1027
+* Younow'dan gelen ziyaretçi sayısı: 1700
+* Duckduckgo'dan gelen ziyaretçi sayısı: 1436
+* Slot Oyunu Oynayanlar: 1917
+* Canlı Bahis Yapanlar: 144
+* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %97
+* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %93
+* Günlük Ortalama Ziyaretçi Sayısı: 261

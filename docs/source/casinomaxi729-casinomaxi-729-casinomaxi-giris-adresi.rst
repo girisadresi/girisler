@@ -4,7 +4,7 @@
 .. image:: images/casinomaxi-giris.jpg
    :width: 600
    
-Casinomaxi bahis ofisinin en temiz giriş yolu **casinomaxi729.com** olarak söylenmiştir. Türkiye'de rulet şirketlerine direk ulaşım sağlama problemi yüzleşen bahis tutkunları tam da şuanki değişen son giriş adresi arzusuna gözatmışlardır. Mesai arkadaşlarımızla bize düşen görevi uygulamak isteğiyle uzman gözümüzle Çekim hızı jet hızında olan casino ofislerini araştırarak payfix ile oynayacaklara yardım edeceğiz. Soruşturulan Atlantisbahis465, Pusulabet697, Casinomaxi729 ve 121Kolaybet adres değişimleridir.
+Casinomaxi platformunun erişim meselesi olmayan giriş yeri **casinomaxi729.com** isminde kayıt yaptırılmıştır. Yaşadığımız şehirde blackjack bürolarına direk ulaşım sağlama problemi ile karşılaşan oyun severleri bu anki değişen aktif giriş adresi arayışına girişmişlerdir. Personellerimizle üstümüze düşen sorumluluğu uygulamak nedeniyle aralıksız Ülkemizde popüler olan  poker bürolarını analiz yaparak depozit yapacaklara ön ayak olacağız. Kovuşturulan Elitbahis652, Casibom561, Pokerklas548 ve Betpipo377 adres değişiklikleridir.
 
 `GİRİŞ İÇİN TIKLAYIN! <https://urlday.cc/git>`_
 ==============
@@ -14,26 +14,26 @@ Casinomaxi bahis ofisinin en temiz giriş yolu **casinomaxi729.com** olarak söy
    :header-rows: 1
 
    * - FİRMA
-   * - `122Kolaybet | 122 Kolaybet <122kolaybet-122-kolaybet-kolaybet-giris-adresi.html>`_
-   * - `Kavbet427 | Kavbet 427 <kavbet427-kavbet-427-kavbet-giris-adresi.html>`_
-   * - `Hayalbahis452 | Hayalbahis 452 <hayalbahis452-hayalbahis-452-hayalbahis-giris-adresi.html>`_	 
-   * - `Jojobet824 | Jojobet 824 <jojobet824-jojobet-824-jojobet-giris-adresi.html>`_	 
-   * - `Nakitbahis800 | Nakitbahis 800 <nakitbahis800-nakitbahis-800-nakitbahis-giris-adresi.html>`_ 
-   * - `Holiganbet910 | Holiganbet 910 <holiganbet910-holiganbet-910-holiganbet-giris-adresi.html>`_
-   * - `Limanbet530 | Limanbet 530 <limanbet530-limanbet-530-limanbet-giris-adresi.html>`_	 
-   * - `Hayalbahis451 | Hayalbahis 451 <hayalbahis451-hayalbahis-451-hayalbahis-giris-adresi.html>`_
-   * - `Limanbet530 | Limanbet 530 <limanbet530-limanbet-530-limanbet-giris-adresi.html>`_
-   * - `123Kolaybet | 123 Kolaybet <123kolaybet-123-kolaybet-kolaybet-giris-adresi.html>`_
+   * - `Freybet473 | Freybet 473 <freybet473-freybet-473-freybet-giris-adresi.html>`_
+   * - `Modabet710 | Modabet 710 <modabet710-modabet-710-modabet-giris-adresi.html>`_
+   * - `Goldenbahis585 | Goldenbahis 585 <goldenbahis585-goldenbahis-585-goldenbahis-giris-adresi.html>`_	 
+   * - `Betelli51 | Betelli 51 <betelli51-betelli-51-betelli-giris-adresi.html>`_	 
+   * - `Romabet870 | Romabet 870 <romabet870-romabet-870-romabet-giris-adresi.html>`_ 
+   * - `Betmarino726 | Betmarino 726 <betmarino726-betmarino-726-betmarino-giris-adresi.html>`_
+   * - `Wonodd319 | Wonodd 319 <wonodd319-wonodd-319-wonodd-giris-adresi.html>`_	 
+   * - `Aspercasino471 | Aspercasino 471 <aspercasino471-aspercasino-471-aspercasino-giris-adresi.html>`_
+   * - `Betdoksan357 | Betdoksan 357 <betdoksan357-betdoksan-357-betdoksan-giris-adresi.html>`_
+   * - `Maltbahis336 | Maltbahis 336 <maltbahis336-maltbahis-336-maltbahis-giris-adresi.html>`_
 	 
 Casinomaxi729 İstatistikleri:
 ===================================	 
-* Adres değişikliği inceleme sayısı: 250
-* Google'dan gelen ziyaretçi sayısı: 2101
-* Yandex'den gelen ziyaretçi sayısı: 1078
-* Younow'dan gelen ziyaretçi sayısı: 1122
-* Duckduckgo'dan gelen ziyaretçi sayısı: 1270
-* Slot Oyunu Oynayanlar: 1926
-* Canlı Bahis Yapanlar: 2104
-* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %70
-* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %88
-* Günlük Ortalama Ziyaretçi Sayısı: 267
+* Adres değişikliği inceleme sayısı: 362
+* Google'dan gelen ziyaretçi sayısı: 3601
+* Yandex'den gelen ziyaretçi sayısı: 1959
+* Younow'dan gelen ziyaretçi sayısı: 859
+* Duckduckgo'dan gelen ziyaretçi sayısı: 1339
+* Slot Oyunu Oynayanlar: 1879
+* Canlı Bahis Yapanlar: 3604
+* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %20
+* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %34
+* Günlük Ortalama Ziyaretçi Sayısı: 200

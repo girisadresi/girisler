@@ -4,7 +4,7 @@
 .. image:: images/limanbet-giris.jpg
    :width: 600
    
-Limanbet firmasının en kaliteli giriş adresi **limanbet531.com** olarak kurulmuştur. Telefondan bahis şirketlerine ulaşım sağlama sorunu yaşayan bahis severler günümüzdeki güncel yeni giriş adresi arzusuna koyulmuşlardır. Gruptakilerle üstümüze düşen şeyleri uygulamak hayaliyle daima Ülkemizde popüler olan  rulet websitelerini belirterek bitcoin ile ödeme yapacaklara iyilik yapacağız. Gözatılan Casinomaxi729, Atlantisbahis462, Atlantisbahis462 ve Trendbet536 başlıklarıdır.
+Limanbet bahis firmasının en hızlı giriş yeri **limanbet531.com** isminde yazılmıştır. Telefondan canlı rulet sitelerine erişim sağlama sorunu karşı karşıya kalan bahis tutkunları günümüzdeki bağlantı adresi arzusuna girişmişlerdir. Mesai arkadaşlarımızla üstümüze düşen misyonu icra etmek hevesiyle objektif olarak yabancı canlı kumar şirketlerini filtreleyerek bonus alacaklara iyilik yapacağız. Bakılan Grandpashabet1477, 38Bahisnow, Bayşanslı491 ve Lordcasino290 başlıklarıdır.
 
 `DEVAM ETMEK İÇİN TIKLAYIN! <https://urlday.cc/git>`_
 ==============
@@ -14,26 +14,26 @@ Limanbet firmasının en kaliteli giriş adresi **limanbet531.com** olarak kurul
    :header-rows: 1
 
    * - FİRMA
-   * - `Pulibet635 | Pulibet 635 <pulibet635-pulibet-635-pulibet-giris-adresi.html>`_
-   * - `Pusulabet694 | Pusulabet 694 <pusulabet694-pusulabet-694-pusulabet-giris-adresi.html>`_
-   * - `Betyap497 | Betyap 497 <betyap497-betyap-497-betyap-giris-adresi.html>`_	 
-   * - `Perabet940 | Perabet 940 <perabet940-perabet-940-perabet-giris-adresi.html>`_	 
-   * - `Pulibet634 | Pulibet 634 <pulibet634-pulibet-634-pulibet-giris-adresi.html>`_ 
-   * - `Enobahis396 | Enobahis 396 <enobahis396-enobahis-396-enobahis-giris-adresi.html>`_
-   * - `Betyap498 | Betyap 498 <betyap498-betyap-498-betyap-giris-adresi.html>`_	 
-   * - `Hayalbahis452 | Hayalbahis 452 <hayalbahis452-hayalbahis-452-hayalbahis-giris-adresi.html>`_
-   * - `Nakitbahis802 | Nakitbahis 802 <nakitbahis802-nakitbahis-802-nakitbahis-giris-adresi.html>`_
-   * - `Perabet942 | Perabet 942 <perabet942-perabet-942-perabet-giris-adresi.html>`_
+   * - `Ultrabet847 | Ultrabet 847 <ultrabet847-ultrabet-847-ultrabet-giris-adresi.html>`_
+   * - `Vdcasino919 | Vdcasino 919 <vdcasino919-vdcasino-919-vdcasino-giris-adresi.html>`_
+   * - `Nisanbet422 | Nisanbet 422 <nisanbet422-nisanbet-422-nisanbet-giris-adresi.html>`_	 
+   * - `Betkanyon914 | Betkanyon 914 <betkanyon914-betkanyon-914-betkanyon-giris-adresi.html>`_	 
+   * - `Genzobet90 | Genzobet 90 <genzobet90-genzobet-90-genzobet-giris-adresi.html>`_ 
+   * - `Odeonbet500 | Odeonbet 500 <odeonbet500-odeonbet-500-odeonbet-giris-adresi.html>`_
+   * - `Formenbet281 | Formenbet 281 <formenbet281-formenbet-281-formenbet-giris-adresi.html>`_	 
+   * - `312Slotbar | 312 Slotbar <312slotbar-312-slotbar-slotbar-giris-adresi.html>`_
+   * - `522Bahiscom | 522 Bahiscom <522bahiscom-522-bahiscom-bahiscom-giris-adresi.html>`_
+   * - `Rekorbet435 | Rekorbet 435 <rekorbet435-rekorbet-435-rekorbet-giris-adresi.html>`_
 	 
 Limanbet531 İstatistikleri:
 ===================================	 
-* Adres değişikliği inceleme sayısı: 64
-* Google'dan gelen ziyaretçi sayısı: 2121
-* Yandex'den gelen ziyaretçi sayısı: 1741
-* Younow'dan gelen ziyaretçi sayısı: 1220
-* Duckduckgo'dan gelen ziyaretçi sayısı: 1783
-* Slot Oyunu Oynayanlar: 1436
-* Canlı Bahis Yapanlar: 2124
-* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %71
-* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %96
-* Günlük Ortalama Ziyaretçi Sayısı: 481
+* Adres değişikliği inceleme sayısı: 309
+* Google'dan gelen ziyaretçi sayısı: 421
+* Yandex'den gelen ziyaretçi sayısı: 1342
+* Younow'dan gelen ziyaretçi sayısı: 1501
+* Duckduckgo'dan gelen ziyaretçi sayısı: 1516
+* Slot Oyunu Oynayanlar: 769
+* Canlı Bahis Yapanlar: 424
+* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %66
+* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %45
+* Günlük Ortalama Ziyaretçi Sayısı: 454

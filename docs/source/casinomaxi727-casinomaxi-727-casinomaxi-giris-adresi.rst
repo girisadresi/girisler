@@ -4,7 +4,7 @@
 .. image:: images/casinomaxi-giris.jpg
    :width: 600
    
-Casinomaxi ofisinin en güvenli giriş adresi **casinomaxi727.com** adında sunulmuştur. Mobil cihazlardan bakara bürolarına direk erişim hatası yaşayan canlı bahis sevenler tam da şuanki kentisiz ulaşım adresi hevesine yolalmışlardır. Biz de üstümüze düşen görevi yerine getirmek ümidiyle objektif olarak ödeme yapan rulet şirketlerini filtreleyerek siz sevgili kullanıcılara yardım edeceğiz. Soruşturulan Kavbet427, Tarabet398, Enobahis395 ve 298Gorabet başlıklarıdır.
+Casinomaxi ofisinin erişim engeli olmayan giriş bağlantısı **casinomaxi727.com** isminde sunulmuştur. Ülkemizde bahis sitelerine ulaşım sorunu ile karşılaşan slot tutkunları o anki değişen mobil giriş adresi hevesine gitmişlerdir. Takım olarak bize düşen görevi icra etmek hedefiyle her an Hızlı hizmet kalitesine sahip blackjack ofislerini belirterek müşterilere ön ayak olacağız. Konuşulan Betasus730, Retrobet605, 762Betebet ve Pusulabet697 başlıklarıdır.
 
 `DEVAM ETMEK İÇİN TIKLAYIN! <https://urlday.cc/git>`_
 ==============
@@ -14,26 +14,26 @@ Casinomaxi ofisinin en güvenli giriş adresi **casinomaxi727.com** adında sunu
    :header-rows: 1
 
    * - FİRMA
-   * - `Nakitbahis800 | Nakitbahis 800 <nakitbahis800-nakitbahis-800-nakitbahis-giris-adresi.html>`_
-   * - `Kavbet427 | Kavbet 427 <kavbet427-kavbet-427-kavbet-giris-adresi.html>`_
-   * - `122Kolaybet | 122 Kolaybet <122kolaybet-122-kolaybet-kolaybet-giris-adresi.html>`_	 
-   * - `Perabet941 | Perabet 941 <perabet941-perabet-941-perabet-giris-adresi.html>`_	 
-   * - `Holiganbet912 | Holiganbet 912 <holiganbet912-holiganbet-912-holiganbet-giris-adresi.html>`_ 
-   * - `Nakitbahis802 | Nakitbahis 802 <nakitbahis802-nakitbahis-802-nakitbahis-giris-adresi.html>`_
-   * - `124Kolaybet | 124 Kolaybet <124kolaybet-124-kolaybet-kolaybet-giris-adresi.html>`_	 
-   * - `123Kolaybet | 123 Kolaybet <123kolaybet-123-kolaybet-kolaybet-giris-adresi.html>`_
-   * - `Betyap499 | Betyap 499 <betyap499-betyap-499-betyap-giris-adresi.html>`_
-   * - `Trendbet537 | Trendbet 537 <trendbet537-trendbet-537-trendbet-giris-adresi.html>`_
+   * - `695Betvole | 695 Betvole <695betvole-695-betvole-betvole-giris-adresi.html>`_
+   * - `Dinamobet761 | Dinamobet 761 <dinamobet761-dinamobet-761-dinamobet-giris-adresi.html>`_
+   * - `Casinogaranti623 | Casinogaranti 623 <casinogaranti623-casinogaranti-623-casinogaranti-giris-adresi.html>`_	 
+   * - `Wsbets233 | Wsbets 233 <wsbets233-wsbets-233-wsbets-giris-adresi.html>`_	 
+   * - `292Redwin | 292 Redwin <292redwin-292-redwin-redwin-giris-adresi.html>`_ 
+   * - `Hayalbahis454 | Hayalbahis 454 <hayalbahis454-hayalbahis-454-hayalbahis-giris-adresi.html>`_
+   * - `Betasus732 | Betasus 732 <betasus732-betasus-732-betasus-giris-adresi.html>`_	 
+   * - `414Betcup | 414 Betcup <414betcup-414-betcup-betcup-giris-adresi.html>`_
+   * - `Efsanebahis326 | Efsanebahis 326 <efsanebahis326-efsanebahis-326-efsanebahis-giris-adresi.html>`_
+   * - `OsloBet578 | OsloBet 578 <oslobet578-oslobet-578-oslobet-giris-adresi.html>`_
 	 
 Casinomaxi727 İstatistikleri:
 ===================================	 
-* Adres değişikliği inceleme sayısı: 249
-* Google'dan gelen ziyaretçi sayısı: 981
-* Yandex'den gelen ziyaretçi sayısı: 760
-* Younow'dan gelen ziyaretçi sayısı: 1065
-* Duckduckgo'dan gelen ziyaretçi sayısı: 1201
-* Slot Oyunu Oynayanlar: 1779
-* Canlı Bahis Yapanlar: 984
-* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %42
-* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %33
-* Günlük Ortalama Ziyaretçi Sayısı: 201
+* Adres değişikliği inceleme sayısı: 0
+* Google'dan gelen ziyaretçi sayısı: 731
+* Yandex'den gelen ziyaretçi sayısı: 1811
+* Younow'dan gelen ziyaretçi sayısı: 688
+* Duckduckgo'dan gelen ziyaretçi sayısı: 874
+* Slot Oyunu Oynayanlar: 1594
+* Canlı Bahis Yapanlar: 734
+* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %37
+* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %25
+* Günlük Ortalama Ziyaretçi Sayısı: 426

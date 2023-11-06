@@ -4,9 +4,9 @@
 .. image:: images/perabet-giris.jpg
    :width: 600
    
-Perabet firmasının en sağlam giriş adresi **perabet940.com** şeklinde kayıtlanmıştır. Ülkemizde bahis platformlarına direk bağlantı kurma sorunu yaşayan rulet oyuncuları bu anki değişen son giriş adresi arzusuna koyulmuşlardır. Ekip halinde üstümüze düşen misyonu icra etmek maksadıyla daima En çok aratılan rulet bürolarını filtreleyerek kullanıcılara iyilik yapacağız. Gözatılan Betyap497, Holiganbet911, Betyap498 ve Trendbet536 konularıdır.
+Perabet sitesinin en yeni giriş yolu **perabet940.com** şeklinde değişikliğe uğramıştır. İnternet üzerinden slot ofislerine direk ulaşım sorunsalı karşı karşıya kalan oyun tutkunları tam da şimdiki güncel mobil girişi isteğine kapılmışlardır. Ekipçe üstümüze düşen şeyleri uygulamak arzusuyla aralıksız ödeme yapan casino ofislerini araştırarak kayıt olmayı aklından geçirenlere iyilik yapacağız. Kovuşturulan Altıncasino396, Retrobet605, Maltbahis334 ve Ligobet636 adres değişimleridir.
 
-`GİRİŞ YAPMAK İÇİN TIKLAYIN! <https://urlday.cc/git>`_
+`SİTEYE ERİŞİM İÇİN TIKLAYIN! <https://urlday.cc/git>`_
 ==============
 
 .. list-table:: **SON ADRES DEĞİŞİKLİKLERİ**
@@ -14,26 +14,26 @@ Perabet firmasının en sağlam giriş adresi **perabet940.com** şeklinde kayı
    :header-rows: 1
 
    * - FİRMA
-   * - `Casinomaxi728 | Casinomaxi 728 <casinomaxi728-casinomaxi-728-casinomaxi-giris-adresi.html>`_
-   * - `Trendbet535 | Trendbet 535 <trendbet535-trendbet-535-trendbet-giris-adresi.html>`_
-   * - `121Kolaybet | 121 Kolaybet <121kolaybet-121-kolaybet-kolaybet-giris-adresi.html>`_	 
-   * - `Pusulabet694 | Pusulabet 694 <pusulabet694-pusulabet-694-pusulabet-giris-adresi.html>`_	 
-   * - `Enobahis396 | Enobahis 396 <enobahis396-enobahis-396-enobahis-giris-adresi.html>`_ 
-   * - `Betyap497 | Betyap 497 <betyap497-betyap-497-betyap-giris-adresi.html>`_
-   * - `Enobahis395 | Enobahis 395 <enobahis395-enobahis-395-enobahis-giris-adresi.html>`_	 
-   * - `Kavbet424 | Kavbet 424 <kavbet424-kavbet-424-kavbet-giris-adresi.html>`_
-   * - `Jojobet823 | Jojobet 823 <jojobet823-jojobet-823-jojobet-giris-adresi.html>`_
-   * - `Betyap497 | Betyap 497 <betyap497-betyap-497-betyap-giris-adresi.html>`_
+   * - `Trbet646 | Trbet 646 <trbet646-trbet-646-trbet-giris-adresi.html>`_
+   * - `Turbobet347 | Turbobet 347 <turbobet347-turbobet-347-turbobet-giris-adresi.html>`_
+   * - `Vidobet407 | Vidobet 407 <vidobet407-vidobet-407-vidobet-giris-adresi.html>`_	 
+   * - `Betboo58 | Betboo 58 <betboo58-betboo-58-betboo-giris-adresi.html>`_	 
+   * - `Kralbet670 | Kralbet 670 <kralbet670-kralbet-670-kralbet-giris-adresi.html>`_ 
+   * - `Grandpashabet1474 | Grandpashabet 1474 <grandpashabet1474-grandpashabet-1474-grandpashabet-giris-adresi.html>`_
+   * - `Milosbet465 | Milosbet 465 <milosbet465-milosbet-465-milosbet-giris-adresi.html>`_	 
+   * - `Betdoksan357 | Betdoksan 357 <betdoksan357-betdoksan-357-betdoksan-giris-adresi.html>`_
+   * - `Betnis416 | Betnis 416 <betnis416-betnis-416-betnis-giris-adresi.html>`_
+   * - `Onwin1217 | Onwin 1217 <onwin1217-onwin-1217-onwin-giris-adresi.html>`_
 	 
 Perabet940 İstatistikleri:
 ===================================	 
-* Adres değişikliği inceleme sayısı: 46
-* Google'dan gelen ziyaretçi sayısı: 881
-* Yandex'den gelen ziyaretçi sayısı: 1113
-* Younow'dan gelen ziyaretçi sayısı: 1928
-* Duckduckgo'dan gelen ziyaretçi sayısı: 968
-* Slot Oyunu Oynayanlar: 508
-* Canlı Bahis Yapanlar: 884
-* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %16
-* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %38
-* Günlük Ortalama Ziyaretçi Sayısı: 70
+* Adres değişikliği inceleme sayısı: 256
+* Google'dan gelen ziyaretçi sayısı: 2101
+* Yandex'den gelen ziyaretçi sayısı: 681
+* Younow'dan gelen ziyaretçi sayısı: 1156
+* Duckduckgo'dan gelen ziyaretçi sayısı: 629
+* Slot Oyunu Oynayanlar: 889
+* Canlı Bahis Yapanlar: 2104
+* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %91
+* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %31
+* Günlük Ortalama Ziyaretçi Sayısı: 52

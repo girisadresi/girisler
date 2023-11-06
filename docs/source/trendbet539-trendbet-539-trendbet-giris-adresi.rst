@@ -4,9 +4,9 @@
 .. image:: images/trendbet-giris.jpg
    :width: 600
    
-Trendbet bahis firmasının erişim engeli olmayan giriş domaini **trendbet539.com** halinde bildirilmiştir. Yaşadığımız şehirde casino platformlarına erişim sağlama sorunu yaşayan slot severler o anki canlı bağlantı adresi arzusuna koyulmuşlardır. Ekip halinde üstümüze düşen misyonu icra etmek ümidiyle objektif olarak Kullanıcıların en çok tercih ettiği canlı kumar şirketlerini filtreleyerek bonus alacaklara iyilik yapacağız. Gözatılan 297Gorabet, Pusulabet695, Tarabet398 ve Holiganbet910 yeni adresleridir.
+Trendbet ofisinin en hatasız giriş uzantısı **trendbet539.com** halinde bildirilmiştir. Türkiye'de slot bürolarına direk erişim sağlama hatası yüzleşen rulet oyuncuları bu anki canlı bağlantı adresi isteğine girişmişlerdir. Ekip olarak üstümüze düşen görevi uygulamak hedefiyle ara vermeden En çok oyun sağlayıcısı olan slot şirketlerini araştırarak payfix ile yatırım yapacaklara yardımcı olacağız. Konuşulan Betlima510, Orisbet218, Betelli50 ve Galabet794 adres değişimleridir.
 
-`GİRİŞ İÇİN TIKLAYIN! <https://urlday.cc/git>`_
+`SİTEYE ERİŞİM İÇİN TIKLAYIN! <https://urlday.cc/git>`_
 ==============
 
 .. list-table:: **SON ADRES DEĞİŞİKLİKLERİ**
@@ -14,26 +14,26 @@ Trendbet bahis firmasının erişim engeli olmayan giriş domaini **trendbet539.
    :header-rows: 1
 
    * - FİRMA
-   * - `Pusulabet695 | Pusulabet 695 <pusulabet695-pusulabet-695-pusulabet-giris-adresi.html>`_
-   * - `Perabet939 | Perabet 939 <perabet939-perabet-939-perabet-giris-adresi.html>`_
-   * - `Atlantisbahis462 | Atlantisbahis 462 <atlantisbahis462-atlantisbahis-462-atlantisbahis-giris-adresi.html>`_	 
-   * - `123Kolaybet | 123 Kolaybet <123kolaybet-123-kolaybet-kolaybet-giris-adresi.html>`_	 
-   * - `Jojobet823 | Jojobet 823 <jojobet823-jojobet-823-jojobet-giris-adresi.html>`_ 
-   * - `Atlantisbahis463 | Atlantisbahis 463 <atlantisbahis463-atlantisbahis-463-atlantisbahis-giris-adresi.html>`_
-   * - `295Gorabet | 295 Gorabet <295gorabet-295-gorabet-gorabet-giris-adresi.html>`_	 
-   * - `Hayalbahis451 | Hayalbahis 451 <hayalbahis451-hayalbahis-451-hayalbahis-giris-adresi.html>`_
-   * - `122Kolaybet | 122 Kolaybet <122kolaybet-122-kolaybet-kolaybet-giris-adresi.html>`_
-   * - `Atlantisbahis465 | Atlantisbahis 465 <atlantisbahis465-atlantisbahis-465-atlantisbahis-giris-adresi.html>`_
+   * - `Setrabet632 | Setrabet 632 <setrabet632-setrabet-632-setrabet-giris-adresi.html>`_
+   * - `Genzobet90 | Genzobet 90 <genzobet90-genzobet-90-genzobet-giris-adresi.html>`_
+   * - `Jasminbet590 | Jasminbet 590 <jasminbet590-jasminbet-590-jasminbet-giris-adresi.html>`_	 
+   * - `Lirabet396 | Lirabet 396 <lirabet396-lirabet-396-lirabet-giris-adresi.html>`_	 
+   * - `Kalebet1084 | Kalebet 1084 <kalebet1084-kalebet-1084-kalebet-giris-adresi.html>`_ 
+   * - `Palmibet297 | Palmibet 297 <palmibet297-palmibet-297-palmibet-giris-adresi.html>`_
+   * - `Enobahis396 | Enobahis 396 <enobahis396-enobahis-396-enobahis-giris-adresi.html>`_	 
+   * - `Heybet536 | Heybet 536 <heybet536-heybet-536-heybet-giris-adresi.html>`_
+   * - `Portbet463 | Portbet 463 <portbet463-portbet-463-portbet-giris-adresi.html>`_
+   * - `Orisbet217 | Orisbet 217 <orisbet217-orisbet-217-orisbet-giris-adresi.html>`_
 	 
 Trendbet539 İstatistikleri:
 ===================================	 
-* Adres değişikliği inceleme sayısı: 326
-* Google'dan gelen ziyaretçi sayısı: 3251
-* Yandex'den gelen ziyaretçi sayısı: 898
-* Younow'dan gelen ziyaretçi sayısı: 570
-* Duckduckgo'dan gelen ziyaretçi sayısı: 596
-* Slot Oyunu Oynayanlar: 920
-* Canlı Bahis Yapanlar: 3254
-* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %81
-* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %21
-* Günlük Ortalama Ziyaretçi Sayısı: 308
+* Adres değişikliği inceleme sayısı: 0
+* Google'dan gelen ziyaretçi sayısı: 2461
+* Yandex'den gelen ziyaretçi sayısı: 1336
+* Younow'dan gelen ziyaretçi sayısı: 852
+* Duckduckgo'dan gelen ziyaretçi sayısı: 1931
+* Slot Oyunu Oynayanlar: 1016
+* Canlı Bahis Yapanlar: 2464
+* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %78
+* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %27
+* Günlük Ortalama Ziyaretçi Sayısı: 126

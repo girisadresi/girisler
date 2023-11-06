@@ -4,7 +4,7 @@
 .. image:: images/nakitbahis-giris.jpg
    :width: 600
    
-Nakitbahis bahis platformunun açılan giriş noktası **nakitbahis800.com** adında değişikliğe uğramıştır. Bilgisayardan slot şirketlerine bağlantı kurma sorunsalı karşı karşıya kalan canlı bahis sevenler tam da şuanki kentisiz ulaşım adresi arzusuna koyulmuşlardır. Takım olarak bize düşen sorumluluğu icra etmek amacıyla kesintisiz Ülkemizde popüler olan  canlı rulet websitelerini filtreleyerek kayıt olmayı düşünenlere yardımcı olacağız. Bakılan Enobahis396, Jojobet824, Tarabet395 ve Casinomaxi726 içerikleridir.
+Nakitbahis bahis firmasının en güzel giriş linki **nakitbahis800.com** şeklinde sunulmuştur. Ülkemizde casino websitelerine ulaşım sorunu ile karşılaşan oyun bağımlıları bu anki bağlantı adresi isteğine yolalmışlardır. Çalışma arkadaşları olarak üstümüze düşen şeyleri uygulamak umuduyla her an ödeme yapan canlı rulet ofislerini belirterek havale kullananlara yardımcı olacağız. Aranan Palacebet314, Ganobet327, Galabet794 ve Bahigo1605 konularıdır.
 
 `GİTMEK İÇİN TIKLAYIN! <https://urlday.cc/git>`_
 ==============
@@ -14,26 +14,26 @@ Nakitbahis bahis platformunun açılan giriş noktası **nakitbahis800.com** ad�
    :header-rows: 1
 
    * - FİRMA
-   * - `Jojobet825 | Jojobet 825 <jojobet825-jojobet-825-jojobet-giris-adresi.html>`_
-   * - `Jojobet822 | Jojobet 822 <jojobet822-jojobet-822-jojobet-giris-adresi.html>`_
-   * - `295Gorabet | 295 Gorabet <295gorabet-295-gorabet-gorabet-giris-adresi.html>`_	 
-   * - `Pusulabet696 | Pusulabet 696 <pusulabet696-pusulabet-696-pusulabet-giris-adresi.html>`_	 
-   * - `Nakitbahis801 | Nakitbahis 801 <nakitbahis801-nakitbahis-801-nakitbahis-giris-adresi.html>`_ 
-   * - `Holiganbet909 | Holiganbet 909 <holiganbet909-holiganbet-909-holiganbet-giris-adresi.html>`_
-   * - `Kavbet426 | Kavbet 426 <kavbet426-kavbet-426-kavbet-giris-adresi.html>`_	 
-   * - `Pusulabet696 | Pusulabet 696 <pusulabet696-pusulabet-696-pusulabet-giris-adresi.html>`_
-   * - `Pusulabet695 | Pusulabet 695 <pusulabet695-pusulabet-695-pusulabet-giris-adresi.html>`_
-   * - `Trendbet536 | Trendbet 536 <trendbet536-trendbet-536-trendbet-giris-adresi.html>`_
+   * - `LotoBet266 | LotoBet 266 <lotobet266-lotobet-266-lotobet-giris-adresi.html>`_
+   * - `Betmanbet333 | Betmanbet 333 <betmanbet333-betmanbet-333-betmanbet-giris-adresi.html>`_
+   * - `764Betebet | 764 Betebet <764betebet-764-betebet-betebet-giris-adresi.html>`_	 
+   * - `Ganobet324 | Ganobet 324 <ganobet324-ganobet-324-ganobet-giris-adresi.html>`_	 
+   * - `Sembolbet282 | Sembolbet 282 <sembolbet282-sembolbet-282-sembolbet-giris-adresi.html>`_ 
+   * - `Şutbet554 | Şutbet 554 <sutbet554-sutbet-554-sutbet-giris-adresi.html>`_
+   * - `Polobet822 | Polobet 822 <polobet822-polobet-822-polobet-giris-adresi.html>`_	 
+   * - `Onbahis476 | Onbahis 476 <onbahis476-onbahis-476-onbahis-giris-adresi.html>`_
+   * - `394Kingbetting | 394 Kingbetting <394kingbetting-394-kingbetting-kingbetting-giris-adresi.html>`_
+   * - `458Türkbet | 458 Türkbet <458turkbet-458-turkbet-turkbet-giris-adresi.html>`_
 	 
 Nakitbahis800 İstatistikleri:
 ===================================	 
-* Adres değişikliği inceleme sayısı: 7
-* Google'dan gelen ziyaretçi sayısı: 2561
-* Yandex'den gelen ziyaretçi sayısı: 728
-* Younow'dan gelen ziyaretçi sayısı: 835
-* Duckduckgo'dan gelen ziyaretçi sayısı: 777
-* Slot Oyunu Oynayanlar: 1601
-* Canlı Bahis Yapanlar: 2564
-* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %64
-* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %42
-* Günlük Ortalama Ziyaretçi Sayısı: 179
+* Adres değişikliği inceleme sayısı: 230
+* Google'dan gelen ziyaretçi sayısı: 4371
+* Yandex'den gelen ziyaretçi sayısı: 999
+* Younow'dan gelen ziyaretçi sayısı: 1224
+* Duckduckgo'dan gelen ziyaretçi sayısı: 1096
+* Slot Oyunu Oynayanlar: 1248
+* Canlı Bahis Yapanlar: 4374
+* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %47
+* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %0
+* Günlük Ortalama Ziyaretçi Sayısı: 49

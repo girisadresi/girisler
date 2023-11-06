@@ -4,7 +4,7 @@
 .. image:: images/atlantisbahis-giris.jpg
    :width: 600
    
-Atlantisbahis firmasının erişim derdi olmayan giriş yeri **atlantisbahis462.com** şeklinde kayıtlanmıştır. Arama motoru yoluyla canlı rulet websitelerine erişim sağlama hatası yüzleşen casino oyuncuları tam da şimdiki canlı erişim adresli arzusuna girişmişlerdir. Gruptakilerle üstümüze düşen sorumluluğu icra etmek hayaliyle kesintisiz ödeme yapan canlı blackjack sitelerini göz atarak para yatırmak isteyenlere yardımcı olacağız. Kovuşturulan Pulibet636, Casinomaxi728, Kavbet424 ve Casinomaxi728 konularıdır.
+Atlantisbahis bahis firmasının anında giriş yeri **atlantisbahis462.com** olarak söylenmiştir. İnternet üzerinden canlı kumar bürolarına direk bağlantı sağlama sorunsalı yüzleşen oyun hastaları günümüzdeki kesintisiz giriş adresi arayışına bakmışlardır. Grup arkadaşlarımızla üstümüze düşen sorumluluğu uygulamak umuduyla ara vermeden yasadışı canlı bahis websitelerini araştırıp üyelik hesabı oluşturacaklara ön ayak olacağız. Bakılan Olabahis494, Turbobet348, Jasminbet589 ve Efesbetcasino368 başlıklarıdır.
 
 `GİTMEK İÇİN TIKLAYIN! <https://urlday.cc/git>`_
 ==============
@@ -14,26 +14,26 @@ Atlantisbahis firmasının erişim derdi olmayan giriş yeri **atlantisbahis462.
    :header-rows: 1
 
    * - FİRMA
-   * - `Kavbet424 | Kavbet 424 <kavbet424-kavbet-424-kavbet-giris-adresi.html>`_
-   * - `298Gorabet | 298 Gorabet <298gorabet-298-gorabet-gorabet-giris-adresi.html>`_
-   * - `Enobahis397 | Enobahis 397 <enobahis397-enobahis-397-enobahis-giris-adresi.html>`_	 
-   * - `Kavbet424 | Kavbet 424 <kavbet424-kavbet-424-kavbet-giris-adresi.html>`_	 
-   * - `296Gorabet | 296 Gorabet <296gorabet-296-gorabet-gorabet-giris-adresi.html>`_ 
-   * - `Nakitbahis803 | Nakitbahis 803 <nakitbahis803-nakitbahis-803-nakitbahis-giris-adresi.html>`_
-   * - `123Kolaybet | 123 Kolaybet <123kolaybet-123-kolaybet-kolaybet-giris-adresi.html>`_	 
-   * - `Tarabet396 | Tarabet 396 <tarabet396-tarabet-396-tarabet-giris-adresi.html>`_
-   * - `Pusulabet694 | Pusulabet 694 <pusulabet694-pusulabet-694-pusulabet-giris-adresi.html>`_
-   * - `Atlantisbahis464 | Atlantisbahis 464 <atlantisbahis464-atlantisbahis-464-atlantisbahis-giris-adresi.html>`_
+   * - `Enobahis395 | Enobahis 395 <enobahis395-enobahis-395-enobahis-giris-adresi.html>`_
+   * - `Piabellacasino315 | Piabellacasino 315 <piabellacasino315-piabellacasino-315-piabellacasino-giris-adresi.html>`_
+   * - `Radissonbet116 | Radissonbet 116 <radissonbet116-radissonbet-116-radissonbet-giris-adresi.html>`_	 
+   * - `Nesinecasino236 | Nesinecasino 236 <nesinecasino236-nesinecasino-236-nesinecasino-giris-adresi.html>`_	 
+   * - `RBet336 | RBet 336 <rbet336-rbet-336-rbet-giris-adresi.html>`_ 
+   * - `Rexusbet352 | Rexusbet 352 <rexusbet352-rexusbet-352-rexusbet-giris-adresi.html>`_
+   * - `Padişahbet571 | Padişahbet 571 <padisahbet571-padisahbet-571-padisahbet-giris-adresi.html>`_	 
+   * - `Betpipo379 | Betpipo 379 <betpipo379-betpipo-379-betpipo-giris-adresi.html>`_
+   * - `Palmibet295 | Palmibet 295 <palmibet295-palmibet-295-palmibet-giris-adresi.html>`_
+   * - `Betmarlo637 | Betmarlo 637 <betmarlo637-betmarlo-637-betmarlo-giris-adresi.html>`_
 	 
 Atlantisbahis462 İstatistikleri:
 ===================================	 
-* Adres değişikliği inceleme sayısı: 270
-* Google'dan gelen ziyaretçi sayısı: 3561
-* Yandex'den gelen ziyaretçi sayısı: 1095
-* Younow'dan gelen ziyaretçi sayısı: 1532
-* Duckduckgo'dan gelen ziyaretçi sayısı: 747
-* Slot Oyunu Oynayanlar: 1807
-* Canlı Bahis Yapanlar: 3564
-* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %95
-* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %50
-* Günlük Ortalama Ziyaretçi Sayısı: 396
+* Adres değişikliği inceleme sayısı: 162
+* Google'dan gelen ziyaretçi sayısı: 2771
+* Yandex'den gelen ziyaretçi sayısı: 1945
+* Younow'dan gelen ziyaretçi sayısı: 1555
+* Duckduckgo'dan gelen ziyaretçi sayısı: 1863
+* Slot Oyunu Oynayanlar: 1899
+* Canlı Bahis Yapanlar: 2774
+* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %64
+* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %60
+* Günlük Ortalama Ziyaretçi Sayısı: 295

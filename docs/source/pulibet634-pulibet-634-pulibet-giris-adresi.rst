@@ -4,7 +4,7 @@
 .. image:: images/pulibet-giris.jpg
    :width: 600
    
-Pulibet firmasının güvenilir giriş linki **pulibet634.com** adında yansıtılmıştır. Bu ülkede casino sitelerine anında ulaşım sağlama problemi yüzleşen slot tutkunları o anki canlı ulaşım adresi arzusuna yolalmışlardır. Ekipçe bize düşen sorumluluğu icra etmek maksadıyla kurallarımızdan taviz vermeden Türkiye'nin önde gelen  blackjack ofislerini filtreleyerek kayıt olmak isteyenlere yardım edeceğiz. Aranan Hayalbahis453, Tarabet398, Pusulabet694 ve Pusulabet697 adres değişiklikleridir.
+Pulibet bahis platformunun erişim derdi olmayan giriş noktası **pulibet634.com** halinde kurulmuştur. Bilgisayardan canlı bahis şirketlerine anında erişim kurma problemi karşı karşıya kalan rulet oyuncuları tam da şimdiki canlı giriş adresi arayışına girişmişlerdir. Bizler de üstümüze düşen sorumluluğu icra etmek hevesiyle daima En çok oyun sağlayıcısı olan canlı casino şirketlerini araştırıp payfix ile ödeme yapacaklara yardımcı olacağız. Soruşturulan MrOyun486, Cratosroyalbet527, Ligobet638 ve Perabet942 adres değişimleridir.
 
 `SİTEYE ERİŞİM İÇİN TIKLAYIN! <https://urlday.cc/git>`_
 ==============
@@ -14,26 +14,26 @@ Pulibet firmasının güvenilir giriş linki **pulibet634.com** adında yansıt�
    :header-rows: 1
 
    * - FİRMA
-   * - `Casinomaxi728 | Casinomaxi 728 <casinomaxi728-casinomaxi-728-casinomaxi-giris-adresi.html>`_
-   * - `Kavbet427 | Kavbet 427 <kavbet427-kavbet-427-kavbet-giris-adresi.html>`_
-   * - `Holiganbet911 | Holiganbet 911 <holiganbet911-holiganbet-911-holiganbet-giris-adresi.html>`_	 
-   * - `Jojobet822 | Jojobet 822 <jojobet822-jojobet-822-jojobet-giris-adresi.html>`_	 
-   * - `Pusulabet694 | Pusulabet 694 <pusulabet694-pusulabet-694-pusulabet-giris-adresi.html>`_ 
-   * - `Holiganbet909 | Holiganbet 909 <holiganbet909-holiganbet-909-holiganbet-giris-adresi.html>`_
-   * - `Trendbet536 | Trendbet 536 <trendbet536-trendbet-536-trendbet-giris-adresi.html>`_	 
-   * - `Holiganbet912 | Holiganbet 912 <holiganbet912-holiganbet-912-holiganbet-giris-adresi.html>`_
-   * - `Kavbet424 | Kavbet 424 <kavbet424-kavbet-424-kavbet-giris-adresi.html>`_
-   * - `Kavbet426 | Kavbet 426 <kavbet426-kavbet-426-kavbet-giris-adresi.html>`_
+   * - `Megabahis649 | Megabahis 649 <megabahis649-megabahis-649-megabahis-giris-adresi.html>`_
+   * - `Betexper677 | Betexper 677 <betexper677-betexper-677-betexper-giris-adresi.html>`_
+   * - `Tipobet5208 | Tipobet 5208 <tipobet5208-tipobet-5208-tipobet-giris-adresi.html>`_	 
+   * - `Betkanyon915 | Betkanyon 915 <betkanyon915-betkanyon-915-betkanyon-giris-adresi.html>`_	 
+   * - `Bahisbeta477 | Bahisbeta 477 <bahisbeta477-bahisbeta-477-bahisbeta-giris-adresi.html>`_ 
+   * - `Betkanyon914 | Betkanyon 914 <betkanyon914-betkanyon-914-betkanyon-giris-adresi.html>`_
+   * - `Milosbet468 | Milosbet 468 <milosbet468-milosbet-468-milosbet-giris-adresi.html>`_	 
+   * - `Cratossporting332 | Cratossporting 332 <cratossporting332-cratossporting-332-cratossporting-giris-adresi.html>`_
+   * - `Betpipo380 | Betpipo 380 <betpipo380-betpipo-380-betpipo-giris-adresi.html>`_
+   * - `Wsbets234 | Wsbets 234 <wsbets234-wsbets-234-wsbets-giris-adresi.html>`_
 	 
 Pulibet634 İstatistikleri:
 ===================================	 
-* Adres değişikliği inceleme sayısı: 304
-* Google'dan gelen ziyaretçi sayısı: 4711
-* Yandex'den gelen ziyaretçi sayısı: 1081
-* Younow'dan gelen ziyaretçi sayısı: 1384
-* Duckduckgo'dan gelen ziyaretçi sayısı: 681
-* Slot Oyunu Oynayanlar: 1193
-* Canlı Bahis Yapanlar: 4714
-* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %78
-* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %94
-* Günlük Ortalama Ziyaretçi Sayısı: 365
+* Adres değişikliği inceleme sayısı: 53
+* Google'dan gelen ziyaretçi sayısı: 1441
+* Yandex'den gelen ziyaretçi sayısı: 551
+* Younow'dan gelen ziyaretçi sayısı: 990
+* Duckduckgo'dan gelen ziyaretçi sayısı: 856
+* Slot Oyunu Oynayanlar: 1972
+* Canlı Bahis Yapanlar: 1444
+* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %95
+* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %19
+* Günlük Ortalama Ziyaretçi Sayısı: 488

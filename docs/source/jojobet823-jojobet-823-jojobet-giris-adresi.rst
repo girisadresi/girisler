@@ -4,7 +4,7 @@
 .. image:: images/jojobet-giris.jpg
    :width: 600
    
-Jojobet bahis firmasının açılan giriş noktası **jojobet823.com** isminde yansıtılmıştır. Ülkemizde canlı blackjack platformlarına erişim problemi karşı karşıya kalan oyun bağımlıları tam da şimdiki değişen mobil giriş adresi hevesine girişmişlerdir. Grupça üstümüze düşen görevi icra etmek arzusuyla ara vermeden Çekim hızı jet hızında olan bakara ofislerini filtreleyerek siz sevgili kullanıcılara yardım edeceğiz. Sorgulanan Nakitbahis800, Trendbet535, Hayalbahis454 ve Pulibet633 içerikleridir.
+Jojobet sitesinin en hatasız giriş domaini **jojobet823.com** adında kayıt yaptırılmıştır. Ülkemizde slot websitelerine direk bağlantı sağlama sıkıntısı yaşayan rulet tutkunları günümüzdeki kentisiz ulaşım adresi hevesine kapılmışlardır. Takımca üstümüze düşen şeyleri uygulamak ümidiyle kesintisiz belge talep etmeyen sanal bahis websitelerini analiz ederek kayıt olmayı düşünenlere yardımcı olacağız. Konuşulan Tambet185, Galaxybetting485, Milbet304 ve Noktabet820 adres değişimleridir.
 
 `SİTEYE ERİŞİM İÇİN TIKLAYIN! <https://urlday.cc/git>`_
 ==============
@@ -14,26 +14,26 @@ Jojobet bahis firmasının açılan giriş noktası **jojobet823.com** isminde y
    :header-rows: 1
 
    * - FİRMA
-   * - `Atlantisbahis464 | Atlantisbahis 464 <atlantisbahis464-atlantisbahis-464-atlantisbahis-giris-adresi.html>`_
-   * - `Casinomaxi729 | Casinomaxi 729 <casinomaxi729-casinomaxi-729-casinomaxi-giris-adresi.html>`_
-   * - `Tarabet398 | Tarabet 398 <tarabet398-tarabet-398-tarabet-giris-adresi.html>`_	 
-   * - `122Kolaybet | 122 Kolaybet <122kolaybet-122-kolaybet-kolaybet-giris-adresi.html>`_	 
-   * - `297Gorabet | 297 Gorabet <297gorabet-297-gorabet-gorabet-giris-adresi.html>`_ 
-   * - `Hayalbahis451 | Hayalbahis 451 <hayalbahis451-hayalbahis-451-hayalbahis-giris-adresi.html>`_
-   * - `Holiganbet909 | Holiganbet 909 <holiganbet909-holiganbet-909-holiganbet-giris-adresi.html>`_	 
-   * - `Kavbet424 | Kavbet 424 <kavbet424-kavbet-424-kavbet-giris-adresi.html>`_
-   * - `Trendbet537 | Trendbet 537 <trendbet537-trendbet-537-trendbet-giris-adresi.html>`_
-   * - `Tarabet395 | Tarabet 395 <tarabet395-tarabet-395-tarabet-giris-adresi.html>`_
+   * - `Betkanyon916 | Betkanyon 916 <betkanyon916-betkanyon-916-betkanyon-giris-adresi.html>`_
+   * - `Bullbahis232 | Bullbahis 232 <bullbahis232-bullbahis-232-bullbahis-giris-adresi.html>`_
+   * - `Celtabet714 | Celtabet 714 <celtabet714-celtabet-714-celtabet-giris-adresi.html>`_	 
+   * - `Bahisal536 | Bahisal 536 <bahisal536-bahisal-536-bahisal-giris-adresi.html>`_	 
+   * - `Justinbet316 | Justinbet 316 <justinbet316-justinbet-316-justinbet-giris-adresi.html>`_ 
+   * - `Venusbet585 | Venusbet 585 <venusbet585-venusbet-585-venusbet-giris-adresi.html>`_
+   * - `Yorkbet563 | Yorkbet 563 <yorkbet563-yorkbet-563-yorkbet-giris-adresi.html>`_	 
+   * - `Padişahbet573 | Padişahbet 573 <padisahbet573-padisahbet-573-padisahbet-giris-adresi.html>`_
+   * - `Betsound57 | Betsound 57 <betsound57-betsound-57-betsound-giris-adresi.html>`_
+   * - `Napolyonbet371 | Napolyonbet 371 <napolyonbet371-napolyonbet-371-napolyonbet-giris-adresi.html>`_
 	 
 Jojobet823 İstatistikleri:
 ===================================	 
-* Adres değişikliği inceleme sayısı: 330
-* Google'dan gelen ziyaretçi sayısı: 4601
-* Yandex'den gelen ziyaretçi sayısı: 1389
-* Younow'dan gelen ziyaretçi sayısı: 1726
-* Duckduckgo'dan gelen ziyaretçi sayısı: 1997
-* Slot Oyunu Oynayanlar: 1526
-* Canlı Bahis Yapanlar: 4604
-* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %12
-* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %62
-* Günlük Ortalama Ziyaretçi Sayısı: 483
+* Adres değişikliği inceleme sayısı: 189
+* Google'dan gelen ziyaretçi sayısı: 4871
+* Yandex'den gelen ziyaretçi sayısı: 1150
+* Younow'dan gelen ziyaretçi sayısı: 824
+* Duckduckgo'dan gelen ziyaretçi sayısı: 1423
+* Slot Oyunu Oynayanlar: 750
+* Canlı Bahis Yapanlar: 4874
+* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %73
+* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %3
+* Günlük Ortalama Ziyaretçi Sayısı: 299

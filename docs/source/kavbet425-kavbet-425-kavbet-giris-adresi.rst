@@ -4,9 +4,9 @@
 .. image:: images/kavbet-giris.jpg
    :width: 600
    
-Kavbet websitesinin kusursuz giriş domaini **kavbet425.com** halinde sunulmuştur. Ülkemizde rulet bürolarına bağlantı kurma sorunu yüzleşen casino oyuncuları tam da şimdiki bağlantı adresi isteğine gitmişlerdir. Takımca üstümüze düşen misyonu yerine getirmek bilinciyle objektif olarak Ülkemizde popüler olan  canlı bahis sitelerini analiz ederek üye olmayı düşünenlere ön ayak olacağız. Soruşturulan Holiganbet911, Pulibet634, 298Gorabet ve Holiganbet909 yeni aramalarıdır.
+Kavbet bahis sitesinin tablet giriş adresi **kavbet425.com** isminde kayıtlanmıştır. Yaşadığımız şehirde canlı casino bürolarına direk bağlantı sağlama problemi yaşayan casino severler bugününkü değişen aktif giriş adresi arzusuna gitmişlerdir. Çalışma arkadaşları olarak üstümüze düşen misyonu yerine getirmek hayaliyle aralıksız belge talep etmeyen poker platformlarını araştırarak depozit yapacaklara iyilik yapacağız. Konuşulan Lordbahis445, Milosbet465, Justinbet313 ve LotoBet264 konularıdır.
 
-`GİRİŞ İÇİN TIKLAYIN! <https://urlday.cc/git>`_
+`DEVAM ETMEK İÇİN TIKLAYIN! <https://urlday.cc/git>`_
 ==============
 
 .. list-table:: **SON ADRES DEĞİŞİKLİKLERİ**
@@ -14,26 +14,26 @@ Kavbet websitesinin kusursuz giriş domaini **kavbet425.com** halinde sunulmuşt
    :header-rows: 1
 
    * - FİRMA
-   * - `Tarabet397 | Tarabet 397 <tarabet397-tarabet-397-tarabet-giris-adresi.html>`_
-   * - `Nakitbahis801 | Nakitbahis 801 <nakitbahis801-nakitbahis-801-nakitbahis-giris-adresi.html>`_
-   * - `Pusulabet694 | Pusulabet 694 <pusulabet694-pusulabet-694-pusulabet-giris-adresi.html>`_	 
-   * - `Perabet940 | Perabet 940 <perabet940-perabet-940-perabet-giris-adresi.html>`_	 
-   * - `Holiganbet909 | Holiganbet 909 <holiganbet909-holiganbet-909-holiganbet-giris-adresi.html>`_ 
-   * - `Betyap499 | Betyap 499 <betyap499-betyap-499-betyap-giris-adresi.html>`_
-   * - `121Kolaybet | 121 Kolaybet <121kolaybet-121-kolaybet-kolaybet-giris-adresi.html>`_	 
-   * - `Kavbet427 | Kavbet 427 <kavbet427-kavbet-427-kavbet-giris-adresi.html>`_
-   * - `124Kolaybet | 124 Kolaybet <124kolaybet-124-kolaybet-kolaybet-giris-adresi.html>`_
-   * - `Kavbet427 | Kavbet 427 <kavbet427-kavbet-427-kavbet-giris-adresi.html>`_
+   * - `Atlasbet546 | Atlasbet 546 <atlasbet546-atlasbet-546-atlasbet-giris-adresi.html>`_
+   * - `Caddebet492 | Caddebet 492 <caddebet492-caddebet-492-caddebet-giris-adresi.html>`_
+   * - `Parasino6791 | Parasino 6791 <parasino6791-parasino-6791-parasino-giris-adresi.html>`_	 
+   * - `Efesbetcasino367 | Efesbetcasino 367 <efesbetcasino367-efesbetcasino-367-efesbetcasino-giris-adresi.html>`_	 
+   * - `Alobet277 | Alobet 277 <alobet277-alobet-277-alobet-giris-adresi.html>`_ 
+   * - `Oleybet720 | Oleybet 720 <oleybet720-oleybet-720-oleybet-giris-adresi.html>`_
+   * - `639Artemisbet | 639 Artemisbet <639artemisbet-639-artemisbet-artemisbet-giris-adresi.html>`_	 
+   * - `SavoyBetting646 | SavoyBetting 646 <savoybetting646-savoybetting-646-savoybetting-giris-adresi.html>`_
+   * - `Betcool328 | Betcool 328 <betcool328-betcool-328-betcool-giris-adresi.html>`_
+   * - `Luxbet344 | Luxbet 344 <luxbet344-luxbet-344-luxbet-giris-adresi.html>`_
 	 
 Kavbet425 İstatistikleri:
 ===================================	 
-* Adres değişikliği inceleme sayısı: 329
-* Google'dan gelen ziyaretçi sayısı: 981
-* Yandex'den gelen ziyaretçi sayısı: 1997
-* Younow'dan gelen ziyaretçi sayısı: 1418
-* Duckduckgo'dan gelen ziyaretçi sayısı: 768
-* Slot Oyunu Oynayanlar: 1480
-* Canlı Bahis Yapanlar: 984
-* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %74
-* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %98
-* Günlük Ortalama Ziyaretçi Sayısı: 3
+* Adres değişikliği inceleme sayısı: 249
+* Google'dan gelen ziyaretçi sayısı: 41
+* Yandex'den gelen ziyaretçi sayısı: 848
+* Younow'dan gelen ziyaretçi sayısı: 1065
+* Duckduckgo'dan gelen ziyaretçi sayısı: 1925
+* Slot Oyunu Oynayanlar: 723
+* Canlı Bahis Yapanlar: 44
+* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %1
+* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %32
+* Günlük Ortalama Ziyaretçi Sayısı: 34

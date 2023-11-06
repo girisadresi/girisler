@@ -4,7 +4,7 @@
 .. image:: images/enobahis-giris.jpg
    :width: 600
    
-Enobahis bahis platformunun en kaliteli giriş domaini **enobahis396.com** halinde değiştirilmiştir. Bu ülkede canlı rulet sitelerine anında bağlantı sağlama hatası yaşayan oyun bağımlıları şimdiki canlı giriş adresi isteğine bakmışlardır. Takım olarak bize düşen sorumluluğu uygulamak amacıyla kurallarımızdan taviz vermeden Alanında marka olmuş  canlı casino bürolarını belirterek hesap açacaklara yardımcı olacağız. Soruşturulan Atlantisbahis464, Tarabet398, Betyap499 ve Nakitbahis803 adres değişimleridir.
+Enobahis bahis sitesinin en güvenli giriş uzantısı **enobahis396.com** halinde yazılmıştır. Bu ülkede canlı casino bürolarına erişim sorunsalı ile karşılaşan slot severler tam da şimdiki giriş adresi arzusuna bakmışlardır. Çalışma arkadaşları olarak bize düşen sorumluluğu icra etmek ümidiyle daima Büyük üne sahip  canlı blackjack platformlarını belirterek yatırım yapacaklara iyilik yapacağız. Bakılan Veslot263, Grandpashabet1474, Vbet881 ve Maksibet595 adres değişiklikleridir.
 
 `SİTEYE ERİŞİM İÇİN TIKLAYIN! <https://urlday.cc/git>`_
 ==============
@@ -14,26 +14,26 @@ Enobahis bahis platformunun en kaliteli giriş domaini **enobahis396.com** halin
    :header-rows: 1
 
    * - FİRMA
-   * - `Pulibet633 | Pulibet 633 <pulibet633-pulibet-633-pulibet-giris-adresi.html>`_
-   * - `Perabet942 | Perabet 942 <perabet942-perabet-942-perabet-giris-adresi.html>`_
-   * - `Nakitbahis803 | Nakitbahis 803 <nakitbahis803-nakitbahis-803-nakitbahis-giris-adresi.html>`_	 
-   * - `Betyap496 | Betyap 496 <betyap496-betyap-496-betyap-giris-adresi.html>`_	 
-   * - `Holiganbet911 | Holiganbet 911 <holiganbet911-holiganbet-911-holiganbet-giris-adresi.html>`_ 
-   * - `Kavbet425 | Kavbet 425 <kavbet425-kavbet-425-kavbet-giris-adresi.html>`_
-   * - `Kavbet426 | Kavbet 426 <kavbet426-kavbet-426-kavbet-giris-adresi.html>`_	 
-   * - `121Kolaybet | 121 Kolaybet <121kolaybet-121-kolaybet-kolaybet-giris-adresi.html>`_
-   * - `Jojobet824 | Jojobet 824 <jojobet824-jojobet-824-jojobet-giris-adresi.html>`_
-   * - `Trendbet535 | Trendbet 535 <trendbet535-trendbet-535-trendbet-giris-adresi.html>`_
+   * - `Hazbet115 | Hazbet 115 <hazbet115-hazbet-115-hazbet-giris-adresi.html>`_
+   * - `Netxcasino341 | Netxcasino 341 <netxcasino341-netxcasino-341-netxcasino-giris-adresi.html>`_
+   * - `Aresbet632 | Aresbet 632 <aresbet632-aresbet-632-aresbet-giris-adresi.html>`_	 
+   * - `Odakbet321 | Odakbet 321 <odakbet321-odakbet-321-odakbet-giris-adresi.html>`_	 
+   * - `Bullbahis232 | Bullbahis 232 <bullbahis232-bullbahis-232-bullbahis-giris-adresi.html>`_ 
+   * - `Betmarino726 | Betmarino 726 <betmarino726-betmarino-726-betmarino-giris-adresi.html>`_
+   * - `Routebet422 | Routebet 422 <routebet422-routebet-422-routebet-giris-adresi.html>`_	 
+   * - `Alobet274 | Alobet 274 <alobet274-alobet-274-alobet-giris-adresi.html>`_
+   * - `Bayşanslı492 | Bayşanslı 492 <baysansli492-baysansli-492-baysansli-giris-adresi.html>`_
+   * - `GoBahis715 | GoBahis 715 <gobahis715-gobahis-715-gobahis-giris-adresi.html>`_
 	 
 Enobahis396 İstatistikleri:
 ===================================	 
-* Adres değişikliği inceleme sayısı: 3
-* Google'dan gelen ziyaretçi sayısı: 2581
-* Yandex'den gelen ziyaretçi sayısı: 659
-* Younow'dan gelen ziyaretçi sayısı: 1478
-* Duckduckgo'dan gelen ziyaretçi sayısı: 940
-* Slot Oyunu Oynayanlar: 1546
-* Canlı Bahis Yapanlar: 2584
-* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %11
-* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %14
-* Günlük Ortalama Ziyaretçi Sayısı: 268
+* Adres değişikliği inceleme sayısı: 198
+* Google'dan gelen ziyaretçi sayısı: 3131
+* Yandex'den gelen ziyaretçi sayısı: 1279
+* Younow'dan gelen ziyaretçi sayısı: 1477
+* Duckduckgo'dan gelen ziyaretçi sayısı: 1999
+* Slot Oyunu Oynayanlar: 1531
+* Canlı Bahis Yapanlar: 3134
+* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %69
+* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %68
+* Günlük Ortalama Ziyaretçi Sayısı: 208

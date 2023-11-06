@@ -4,9 +4,9 @@
 .. image:: images/holiganbet-giris.jpg
    :width: 600
    
-Holiganbet bürosunun en hızlı giriş bağlantısı **holiganbet913.com** adında kaydedilmiştir. Mobil cihazlardan canlı kumar ofislerine direk ulaşım hatası yüzleşen bahis severler tam da bu anki güncel yeni giriş adresi hevesine kapılmışlardır. Ekipçe bize düşen görevi uygulamak umuduyla ara vermeden Çekim hızı jet hızında olan canlı rulet ofislerini araştırıp üyelik oluşturanlara yardım edeceğiz. Sorgulanan Pulibet636, Limanbet529, Nakitbahis800 ve 123Kolaybet içerikleridir.
+Holiganbet sitesinin en güzel giriş bağlantısı **holiganbet913.com** adında yazılmıştır. Yaşadığımız şehirde poker platformlarına direk ulaşım problemi ile karşılaşan oyun severleri şuanki kentisiz ulaşım adresi isteğine kapılmışlardır. Grupça üstümüze düşen şeyleri yerine getirmek maksadıyla objektif olarak yasadışı canlı bahis ofislerini filtreleyerek sayın takipçilere ön ayak olacağız. Gözatılan Betsat1147, Vbet882, Betroad226 ve 485Kulisbet yeni adresleridir.
 
-`GİRİŞ İÇİN TIKLAYIN! <https://urlday.cc/git>`_
+`GİRİŞ YAPMAK İÇİN TIKLAYIN! <https://urlday.cc/git>`_
 ==============
 
 .. list-table:: **SON ADRES DEĞİŞİKLİKLERİ**
@@ -14,26 +14,26 @@ Holiganbet bürosunun en hızlı giriş bağlantısı **holiganbet913.com** adı
    :header-rows: 1
 
    * - FİRMA
-   * - `Kavbet427 | Kavbet 427 <kavbet427-kavbet-427-kavbet-giris-adresi.html>`_
-   * - `Tarabet396 | Tarabet 396 <tarabet396-tarabet-396-tarabet-giris-adresi.html>`_
-   * - `Jojobet825 | Jojobet 825 <jojobet825-jojobet-825-jojobet-giris-adresi.html>`_	 
-   * - `Kavbet426 | Kavbet 426 <kavbet426-kavbet-426-kavbet-giris-adresi.html>`_	 
-   * - `Trendbet538 | Trendbet 538 <trendbet538-trendbet-538-trendbet-giris-adresi.html>`_ 
-   * - `Kavbet425 | Kavbet 425 <kavbet425-kavbet-425-kavbet-giris-adresi.html>`_
-   * - `Tarabet396 | Tarabet 396 <tarabet396-tarabet-396-tarabet-giris-adresi.html>`_	 
-   * - `298Gorabet | 298 Gorabet <298gorabet-298-gorabet-gorabet-giris-adresi.html>`_
-   * - `Holiganbet911 | Holiganbet 911 <holiganbet911-holiganbet-911-holiganbet-giris-adresi.html>`_
-   * - `298Gorabet | 298 Gorabet <298gorabet-298-gorabet-gorabet-giris-adresi.html>`_
+   * - `Favoribahis463 | Favoribahis 463 <favoribahis463-favoribahis-463-favoribahis-giris-adresi.html>`_
+   * - `Winbir392 | Winbir 392 <winbir392-winbir-392-winbir-giris-adresi.html>`_
+   * - `135Casinoturka | 135 Casinoturka <135casinoturka-135-casinoturka-casinoturka-giris-adresi.html>`_	 
+   * - `Luxbet343 | Luxbet 343 <luxbet343-luxbet-343-luxbet-giris-adresi.html>`_	 
+   * - `Parasino6790 | Parasino 6790 <parasino6790-parasino-6790-parasino-giris-adresi.html>`_ 
+   * - `Baymavi815 | Baymavi 815 <baymavi815-baymavi-815-baymavi-giris-adresi.html>`_
+   * - `Betpuan448 | Betpuan 448 <betpuan448-betpuan-448-betpuan-giris-adresi.html>`_	 
+   * - `519Bahiscom | 519 Bahiscom <519bahiscom-519-bahiscom-bahiscom-giris-adresi.html>`_
+   * - `Galaxybetting485 | Galaxybetting 485 <galaxybetting485-galaxybetting-485-galaxybetting-giris-adresi.html>`_
+   * - `Betmarlo637 | Betmarlo 637 <betmarlo637-betmarlo-637-betmarlo-giris-adresi.html>`_
 	 
 Holiganbet913 İstatistikleri:
 ===================================	 
-* Adres değişikliği inceleme sayısı: 67
-* Google'dan gelen ziyaretçi sayısı: 2281
-* Yandex'den gelen ziyaretçi sayısı: 1058
-* Younow'dan gelen ziyaretçi sayısı: 1977
-* Duckduckgo'dan gelen ziyaretçi sayısı: 1282
-* Slot Oyunu Oynayanlar: 766
-* Canlı Bahis Yapanlar: 2284
-* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %41
-* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %53
-* Günlük Ortalama Ziyaretçi Sayısı: 105
+* Adres değişikliği inceleme sayısı: 446
+* Google'dan gelen ziyaretçi sayısı: 3911
+* Yandex'den gelen ziyaretçi sayısı: 1150
+* Younow'dan gelen ziyaretçi sayısı: 1899
+* Duckduckgo'dan gelen ziyaretçi sayısı: 537
+* Slot Oyunu Oynayanlar: 1158
+* Canlı Bahis Yapanlar: 3914
+* Firmayı Beğenenlerin Yüzdelik Sayısı(%): %7
+* Ortalama Kazanma Şansınız Yüzdelik Olarak(%): %90
+* Günlük Ortalama Ziyaretçi Sayısı: 29
