@@ -9,6 +9,8 @@ author = 'girisadresi'
 release = '0.1'
 version = '0.1.0'
 
+language = "tr"
+
 # -- General configuration
 
 extensions = [
@@ -37,6 +39,7 @@ html_favicon = 'favicon.ico'
 
 html_theme_options = {
     # Disable showing the sidebar. Defaults to 'false'
+    'display_github': False,
     'nosidebar': True,
     'display_version': False
 }
