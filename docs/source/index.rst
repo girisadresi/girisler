@@ -1,6 +1,9 @@
 Bahis Siteleri Giriş Adresleri
 ===================================
 
+.. meta::
+   :google-site-verification: adzap5HaJ8RWqXZbqkB13_lfVNIkhoP3zGq_5wX-aDU
+
 .. image:: images/betgar-giris.jpg
    :width: 600
 
