@@ -1,13 +1,12 @@
-Holiganbet908 | Holiganbet 908 | Holiganbet Giriş
+%title
 ===================================
 
-.. image:: images/holiganbet-giris.jpg
+.. image:: images/%firmaen-giris.jpg
    :width: 600
    
-Holiganbet giriş adresini holiganbet908.com olarak değiştirmiştir.  
+%makale
 
-
-`GİRİŞ YAPMAK İÇİN TIKLAYIN <https://girisadresi.serv00.net/git>`_
+`GİRİŞ YAPMAK İÇİN TIKLAYIN <https://urlday.cc/git>`_
 ==============
 
 .. list-table:: **SON ADRES DEĞİŞİKLİKLERİ**
@@ -33,7 +32,7 @@ Holiganbet giriş adresini holiganbet908.com olarak değiştirmiştir.
    * - `%firma1 <%firmadres1>`_
      - %firmasayi1
 	 
-Holiganbet908 İstatistikleri:
+%firma%sayi İstatistikleri:
 ===================================	 
 * Adres değişikliği inceleme sayısı: %randomsayi10
 * Google'dan gelen ziyaretçi sayısı: %randomsayi9
