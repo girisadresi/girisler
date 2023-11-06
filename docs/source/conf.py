@@ -11,6 +11,8 @@ version = '0.1.0'
 
 language = "tr"
 
+templates_path = ['_templates']
+
 # -- General configuration
 
 extensions = [
